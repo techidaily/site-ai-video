@@ -1,7 +1,7 @@
 ---
 title: Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations
-date: 2024-04-15T06:21:37.986Z
-updated: 2024-04-16T06:21:37.986Z
+date: 2024-04-30T12:42:49.485Z
+updated: 2024-05-01T12:42:49.485Z
 tags: 
   - ai translate video
   - ai generate video
@@ -1127,3 +1127,4 @@ Also, Wondershare Virbo has a Video Translator tool that allows you to translate
 <li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Methods to Change GPS Location On Apple iPhone 12 | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
 </ul></div>
+
