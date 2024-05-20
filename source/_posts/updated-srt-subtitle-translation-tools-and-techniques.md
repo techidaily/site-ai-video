@@ -1,7 +1,7 @@
 ---
 title: Updated SRT Subtitle Translation Tools and Techniques
-date: 2024-04-30T12:42:50.111Z
-updated: 2024-05-01T12:42:50.111Z
+date: 2024-05-19T02:18:38.866Z
+updated: 2024-05-20T02:18:38.866Z
 tags: 
   - ai translate video
   - ai generate video
@@ -1367,4 +1367,5 @@ By now, you can easily understand other languages with one of the apps listed in
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a56s-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo A56s 5G to Outlook | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-s18-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo S18 Hard Reset | Dr.fone</u></a></li>
 </ul></div>
+
 

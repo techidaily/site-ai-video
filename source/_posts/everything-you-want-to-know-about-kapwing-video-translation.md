@@ -1,7 +1,7 @@
 ---
 title: Everything You Want To Know About Kapwing Video Translation
-date: 2024-04-30T12:42:48.707Z
-updated: 2024-05-01T12:42:48.707Z
+date: 2024-05-19T02:18:37.331Z
+updated: 2024-05-20T02:18:37.331Z
 tags: 
   - ai translate video
   - ai generate video
@@ -1194,4 +1194,5 @@ Armed with these insights, venture into the world of video translation with conf
 <li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-oppo-reno-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Oppo Reno 10 5G | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-14-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 14 Pro Max Space | Dr.fone</u></a></li>
 </ul></div>
+
 
