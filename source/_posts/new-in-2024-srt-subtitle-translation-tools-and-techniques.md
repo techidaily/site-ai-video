@@ -1,7 +1,7 @@
 ---
 title: New In 2024, SRT Subtitle Translation Tools and Techniques
-date: 2024-06-23T00:43:07.187Z
-updated: 2024-06-24T00:43:07.187Z
+date: 2024-06-30T14:00:58.971Z
+updated: 2024-07-01T14:00:58.971Z
 tags: 
   - ai translate video
   - ai generate video
@@ -1010,7 +1010,7 @@ Once your video finishes uploading, you will see the option to select Source and
 
 Click on **Generate Video** to begin the video translation process. It will take some time so be patient.
 
-When the translation finishes, preview it. If everything is fine, click on **Download Video** to save your video offline. Easy peasy![Translate Video Online](https://tools.techidaily.com/wondershare/virbo/download/) [Translate Video on Win](https://tools.techidaily.com/wondershare/virbo/download/)
+When the translation finishes, preview it. If everything is fine, click on **Download Video** to save your video offline. Easy peasy ![Translate Video Online](https://tools.techidaily.com/wondershare/virbo/download/) [Translate Video on Win](https://tools.techidaily.com/wondershare/virbo/download/)
 
 
 ## Part 4. Frequently Asked Questions  (FAQs)

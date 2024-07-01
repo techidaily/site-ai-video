@@ -1,7 +1,7 @@
 ---
 title: In 2024, 9 Best French Video Translators Online and Download Options
-date: 2024-06-08T00:08:33.126Z
-updated: 2024-06-09T00:08:33.126Z
+date: 2024-06-30T14:00:50.560Z
+updated: 2024-07-01T14:00:50.560Z
 tags: 
   - ai translate video
   - ai generate video
@@ -645,7 +645,7 @@ When you play your favorite video, go to the right bottom of the video. You will
 
 ###### Step 2: Go to the settings of the YouTube video to translate it
 
-If CC( closed-caption) does not generate the captions in English language, then go to the settings in the bottom right corner.
+If CC(closed-caption) does not generate the captions in English language, then go to the settings in the bottom right corner.
 
 ![enable the subtitles of YouTube videos](https://images.wondershare.com/virbo/article/translate-youtube-video-to-english-4.JPG)
 
