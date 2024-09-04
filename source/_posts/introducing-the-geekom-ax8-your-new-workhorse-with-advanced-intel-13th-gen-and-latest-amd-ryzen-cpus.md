@@ -1,7 +1,7 @@
 ---
 title: Introducing the Geekom AX8 - Your New Workhorse with Advanced Intel 13Th Gen and Latest AMD Ryzen CPUs
-date: 2024-08-14T09:46:03.785Z
-updated: 2024-08-15T09:46:03.785Z
+date: 2024-09-03T22:54:16.664Z
+updated: 2024-09-04T22:54:16.664Z
 tags:
   - desktop
 categories:
@@ -128,5 +128,8 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

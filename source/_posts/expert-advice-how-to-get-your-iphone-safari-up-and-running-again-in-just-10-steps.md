@@ -1,7 +1,7 @@
 ---
 title: "Expert Advice: How to Get Your iPhone Safari Up and Running Again in Just 10 Steps"
-date: 2024-07-28T09:08:00.169Z
-updated: 2024-07-29T09:08:00.169Z
+date: 2024-09-03T22:54:17.052Z
+updated: 2024-09-04T22:54:17.052Z
 tags:
   - iphone
   - apple
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
  When this happens, it usually means there's a setting or software issue. There are even cases where you might not be able to access the internet at all on your iPhone or iPad. Luckily, there are a variety of things you can try to get Safari working again.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## 1\. Restart Your Device
 
  You hear it all the time—turn your device off and on again. While this may sound too simple to work, restarting your iPhone or iPad has been known to clear your usable memory, which can speed up Safari.
@@ -35,9 +32,6 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
  To turn off suggestions, head to**Settings** \>**Safari** \>**Safari Suggestions** and turn this off. You can also turn off**Search Engine Suggestions** while you're there too, as some users reported this also fixes the issue.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![safari suggestions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/safari-suggestions.jpg)
 
  Some users have also said that [blocking Safari popups on your iPhone](https://www.makeuseof.com/allow-or-block-browser-pop-ups-on-iphone/) can improve the memory usage of Safari. So, you may also want to give this a try.
@@ -52,6 +46,18 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
 ![safari cellular data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/safari-cellular-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Edit Your Screen Time Settings
 
  If you've ever changed your Screen Time settings or blocked certain websites through Screen Time, try turning these settings off. To block websites, you need to enable**Content Restrictions** which can inadvertently block websites you still want to use. If you can't load a link from an email or text message, this could also be a sign that content restrictions are on.
@@ -61,7 +67,22 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 ![screentime content privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screentime-content-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 5\. Clear All Safari's Data
 
@@ -69,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
  To clear Safari's data, head to**Settings** \>**Safari** \>**Clear History and Website Data** . This will erase all extra data in the Safari app. Some users report this works, but you'll need to do it often if you can't eliminate storage space elsewhere on your iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![clear safari history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/clear-safari-history.jpg)
 
 ## 6\. Update iOS to the Latest Version
@@ -80,18 +98,6 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
  Apple does a great job of fixing widespread issues with iOS updates. So, if there is an issue that Apple is aware of, it could get fixed by a subsequent update.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Reset Your Network Settings
 
  If you've had issues with your network before, like not getting service or pages timing out, resetting your Network Settings could help.
@@ -100,38 +106,50 @@ thumbnail: https://thmb.techidaily.com/15c27a9dd37e7d971ec6b1dda7daf6d5203783d6f
 
 ![reset iphone network settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/reset-network-settings-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  After you finish this, try opening Safari to see if it's working again. If not, proceed to the next fix.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## 8\. Reset to Factory Default Settings
 
  If all else fails, you can try resetting your iPhone to the default settings. This will erase all the data on your iPhone, and you'll have to set it up from scratch. However, this is also a very effective way to resolve all kinds of software problems. To do this, head to**Settings** \>**General** \>**Transfer or Reset iPhone (iPad)** \>**Erase All Content and Settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![erase all content and settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/erase-all-content-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  After resetting to the default settings, test out the Safari app before you install your usual apps. If Safari is working then but stops working when a certain app is installed, that means the app installed is interfering with Safari.
 
  If Safari isn't working when you have a fresh install, make sure you didn't [restore a backup of your iPhone or iPad](https://www.makeuseof.com/tag/restore-iphone-ipad-from-backup/) . If you restored a backup, there could be something interfering with Safari that transferred over. If you reset your device without a backup and Safari still doesn't work, you can try one of the two last troubleshooting steps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. Turn On JavaScript
 
 ![Safari settings in iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/safari-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Safari Advanced settings in iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/safari-advanced.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Safari JavaScript settings in iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/safari-javascript.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  JavaScript is on by default on most iOS devices. However, if you're having issues with Safari, it's likely that JavaScript is off. Sometimes, one might turn JavsScript off as some websites might not support it.
@@ -142,13 +160,16 @@ Close
 
 ![firefox app icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/firefox-app-icon.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If the above fixes didn't work, then unfortunately, there might be an iOS bug with Safari, and you'll need to wait for the next update and hope it's patched. Until then, you can try using an alternative browser to access the internet on your device. There are many great browsers available in the App Store that can cater to your needs.
 
  Be sure to check back for iOS updates and see if Apple has addressed the bug. You can also start a new discussion in the [Apple Discussions Community](https://discussions.apple.com/welcome) to see if anyone else is experiencing the same issue.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Safari Not Working on Your iPhone or iPad? It's Most Likely a Software Issue
 
  Cracked screens and broken buttons are easy to diagnose as we can instantly see what's wrong. But when Safari or other apps on your iPhone stop working, that usually means a software issue is at play.
