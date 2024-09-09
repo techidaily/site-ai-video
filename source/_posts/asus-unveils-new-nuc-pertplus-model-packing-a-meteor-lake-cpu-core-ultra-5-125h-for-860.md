@@ -1,7 +1,7 @@
 ---
 title: "Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860"
-date: 2024-09-03T22:54:16.231Z
-updated: 2024-09-04T22:54:16.231Z
+date: 2024-09-08T23:48:00.975Z
+updated: 2024-09-09T23:48:00.975Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,18 @@ categories:
 thumbnail: https://thmb.techidaily.com/30bec39c6c2bfea6784f7fb3989760ee0c9a0b9f3842c193bfea2478974da7cd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Upgrade Your Workstation with the New Asus NUC 14 Pro+ – Core Ultra 5, Meteor CUs at $860
 
 Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=332082&a=2384895&epi=tomshardware-us-5259104635402078116&url=https%3A%2F%2Fpress.asus.com%2Fnews%2Fpress-releases%2Fasus-nuc-14-pro-plus%2F) to its mini-PC line, with the choice between Intel Core Ultra 9, 7, or 5 CPUs. The notable upgrade over the NUC 13 Pro is its Intel Ultra series[Meteor Lake](https://www.tomshardware.com/news/intel-details-core-ultra-meteor-lake-architecture-launches-december-14) CPUs, which now come with an integrated NPU for local generative AI processing. These are available as a barebone kit, where you must buy your own M.2 storage and RAMs and a complete build weighing 800 grams.
@@ -25,10 +37,22 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
 ![Asus NUC  14  Pro+](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Asus NUC 14 Pro+  (Image credit: aSUS)
 
 ![Asus NUC 14+'s rear I/O and Tool-less panel removal for easy hardware upgrade.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Asus NUC 14+'s rear I/O and Tool-less panel removal for easy hardware upgrade.  (Image credit: Asus)
 
  One of the neat additions is the toolless design, which allows you to easily access its internals and build a barebone system or upgrade it a little more easily. For storage, it allows two M.2 NVMe SSDs—2280 for PCIe x4 Gen 5 drives and 2242 for PCIe x4 Gen 4.
@@ -37,6 +61,12 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
  Apart from having a smaller form factor, it might be difficult to ignore other alternatives once you choose your preferred CPU, storage, and RAM options and weigh its offerings and final price against what you would get with a custom-built mini-ITX system, including more I/O options and audio jacks.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -110,10 +140,3 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 <li><a href="https://ai-video.techidaily.com/updated-in-2024-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Updated In 2024, Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
 <li><a href="https://ai-video.techidaily.com/updated-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
