@@ -1,7 +1,7 @@
 ---
 title: "Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860"
-date: 2024-09-08T23:48:00.975Z
-updated: 2024-09-09T23:48:00.975Z
+date: 2024-09-12T17:34:04.861Z
+updated: 2024-09-14T18:58:57.512Z
 tags:
   - desktop
 categories:
@@ -9,18 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/30bec39c6c2bfea6784f7fb3989760ee0c9a0b9f3842c193bfea2478974da7cd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Upgrade Your Workstation with the New Asus NUC 14 Pro+ – Core Ultra 5, Meteor CUs at $860
 
 Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=332082&a=2384895&epi=tomshardware-us-5259104635402078116&url=https%3A%2F%2Fpress.asus.com%2Fnews%2Fpress-releases%2Fasus-nuc-14-pro-plus%2F) to its mini-PC line, with the choice between Intel Core Ultra 9, 7, or 5 CPUs. The notable upgrade over the NUC 13 Pro is its Intel Ultra series[Meteor Lake](https://www.tomshardware.com/news/intel-details-core-ultra-meteor-lake-architecture-launches-december-14) CPUs, which now come with an integrated NPU for local generative AI processing. These are available as a barebone kit, where you must buy your own M.2 storage and RAMs and a complete build weighing 800 grams.
@@ -37,22 +25,10 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
 ![Asus NUC  14  Pro+](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Asus NUC 14 Pro+  (Image credit: aSUS)
 
 ![Asus NUC 14+'s rear I/O and Tool-less panel removal for easy hardware upgrade.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Asus NUC 14+'s rear I/O and Tool-less panel removal for easy hardware upgrade.  (Image credit: Asus)
 
  One of the neat additions is the toolless design, which allows you to easily access its internals and build a barebone system or upgrade it a little more easily. For storage, it allows two M.2 NVMe SSDs—2280 for PCIe x4 Gen 5 drives and 2242 for PCIe x4 Gen 4.
@@ -61,12 +37,6 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
  Apart from having a smaller form factor, it might be difficult to ignore other alternatives once you choose your preferred CPU, storage, and RAM options and weigh its offerings and final price against what you would get with a custom-built mini-ITX system, including more I/O options and audio jacks.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -77,14 +47,11 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
  The NUC 14 Pro+'s pricing starts at[$860](https://clk.tradedoubler.com/click?p=332082&a=2384895&epi=tomshardware-us-6087142996652058573&url=https%3A%2F%2Fshop.asus.com%2Fus%2Fasus-nuc-14-pro-plus.html) with the Core Ultra 5 125H, 512GB SSD and 16GB RAM. Meanwhile, the Core Ultra 7 155H model with a 1TB SSD and 32GB RAM sells for $1,160, and the top Core UItra 9 185H SKU with 1TB SSD and 32GB RAM will set you back $1,239.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,48 +62,25 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-streamlining-your-monetization-mastering-youtube-adsense/"><u>[New] 2024 Approved  Streamlining Your Monetization  Mastering YouTube AdSense</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-essential-youtube-equipment-for-starting-your-channel-what-do-you-really-need-for-2024/"><u>[New] Essential YouTube Equipment For Starting Your Channel - What Do You Really Need for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-pushing-the-boundaries-of-screen-recording-with-recmeister/"><u>[New] In 2024, Pushing the Boundaries of Screen Recording with Recmeister</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-checklist-for-using-firefoxs-popup-window/"><u>[New] The Ultimate Checklist for Using Firefox's Popup Window</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximizing-your-youtube-time-multi-stream-techniques/"><u>[Updated] 2024 Approved  Maximizing Your YouTube Time  Multi-Stream Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-restore-natural-tones-reviving-overexposed-iphone-hdr-videos-in-premiere-pro/"><u>[Updated] 2024 Approved  Restore Natural Tones  Reviving Overexposed iPhone HDR Videos in Premiere Pro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-the-top-webcams-for-windows-10/"><u>[Updated] In 2024, The Ultimate Guide to the Top Webcams for Windows 10</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-syncing-songs-with-stories-and-videos-on-instagram/"><u>2024 Approved  Syncing Songs with Stories and Videos on Instagram</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-techniques-for-intense-online-visualization/"><u>2024 Approved  Techniques for Intense Online Visualization</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-9-choices-for-video-auto-translate/"><u>2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss/"><u>Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/expert-advice-how-to-get-your-iphone-safari-up-and-running-again-in-just-10-steps/"><u>Expert Advice: How to Get Your iPhone Safari Up and Running Again in Just 10 Steps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-oppo-a78-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Oppo A78 Phone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-easy-steps-to-translate-video-on-twitter/"><u>In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-12-pro-max-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 12 Pro Max Lock Screen with Notifications?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-unlocking-global-audiences-top-video-language-converters/"><u>In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/latest-techniques-for-ios-iphoneipad-screen-capture-2023-update-for-2024/"><u>Latest Techniques for iOS (iPhone/iPad) Screen Capture - 2023 Update for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-development-skills-the-best-online-programming-tutorials-for-the-year-2024/"><u>Mastering Development Skills: The Best Online Programming Tutorials for the Year 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/maximize-yandex-translate-in-video-translation-and-beyond/"><u>Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>New 2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>New 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>New 2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://ai-video.techidaily.com/reinstate-lost-files-via-winrecovery-center/"><u>Reinstate Lost Files via WinRecovery Center</u></a></li>
-<li><a href="https://ai-video.techidaily.com/solve-the-no-right-click-error-on-windows-11-touchpad/"><u>Solve the No Right Click Error on Windows 11 Touchpad</u></a></li>
-<li><a href="https://ai-video.techidaily.com/stellars-new-wave-in-data-salvage-crafting-a-seamless-interface-for-end-users/"><u>Stellar's New Wave in Data Salvage: Crafting a Seamless Interface for End-Users</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-any-hindi-video-into-english-with-ai/"><u>Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>Updated 2024 Approved 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-pioneering-the-silent-echo-techniques-and-tools-for-gradual-audio-fading-released/"><u>Updated 2024 Approved Pioneering the Silent Echo Techniques and Tools for Gradual Audio Fading Released</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-brief-review-of-capcut-translate-with-alternative/"><u>Updated A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>Updated In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-video-language-changers-to-make-your-videos-accessible/"><u>Updated In 2024, Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated In 2024, Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Updated In 2024, Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-why-hdr-is-a-game-changer-for-video-enthusiasts-and-professionals/"><u>[New] 2024 Approved Why HDR Is a Game-Changer for Video Enthusiasts and Professionals</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-identifying-the-most-effective-windows-snipping-apps/"><u>[Updated] 2024 Approved Identifying the Most Effective Windows Snipping Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-perfect-youtube-music-sets/"><u>[Updated] Crafting Perfect YouTube Music Sets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-livetv-prowess-elevating-facebook-live-broadcasts/"><u>[Updated] In 2024, LiveTV Prowess Elevating Facebook Live Broadcasts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-smartphone-photographers-must-have-app-list/"><u>[Updated] In 2024, Smartphone Photographers' Must-Have App List</u></a></li>
+<li><a href="https://ai-video.techidaily.com/discover-the-aquatic-style-tecno-x-geekom-g1-your-next-gaming-unit-with-liquid-cooling-and-intel-i9-processor/"><u>Discover the Aquatic Style: Tecno X Geekom G1, Your Next Gaming Unit with Liquid Cooling & Intel I9 Processor</u></a></li>
+<li><a href="https://facebook.techidaily.com/mute-the-noise-steps-to-silence-post-reactions-on-social/"><u>Mute the Noise: Steps to Silence Post Reactions on Social</u></a></li>
+<li><a href="https://ai-video.techidaily.com/plants-vs-zombies-neighborville-a-hilarious-adventure-gone-right/"><u>Plants Vs. Zombies: Neighborville - A Hilarious Adventure Gone Right</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262391694-qualcomm-unveils-a-new-era-of-desktop-computing-the-economical-snapdragon-x-mini-dev-kit-preorders-open/"><u>Qualcomm Unveils a New Era of Desktop Computing – The Economical Snapdragon X Mini Dev Kit, Preorders Open!</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-ultimate-guide-to-gadgets-and-hardware-by-toms-team/"><u>The Ultimate Guide to Gadgets and Hardware by Tom's Team</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-10-android-compatible-gba-games-simulators-for-2024/"><u>Top 10 Android Compatible GBA Games Simulators for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/unveiling-the-best-gadgets-and-computer-equipment-with-toms-hardware-insights/"><u>Unveiling the Best Gadgets and Computer Equipment with Tom's Hardware Insights</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-realme-12-pro-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Realme 12 Pro 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

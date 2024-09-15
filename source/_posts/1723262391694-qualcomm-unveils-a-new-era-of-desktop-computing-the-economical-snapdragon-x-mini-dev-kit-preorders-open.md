@@ -1,7 +1,7 @@
 ---
 title: Qualcomm Unveils a New Era of Desktop Computing – The Economical Snapdragon X Mini Dev Kit, Preorders Open!
-date: 2024-09-08T23:48:01.207Z
-updated: 2024-09-09T23:48:01.207Z
+date: 2024-09-09T18:28:45.127Z
+updated: 2024-09-14T18:34:59.038Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/m7vks9wuG6w6DJGniynyBh-320-80.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Introducing the AM01 by Ayaneo: The Perfect Blend of Classic Appeal and Modern Power – Available Now in Stores
 
 Ayaneo is officially selling its retro mini PC, the AM01, outside of its crowdfunding campaign via its[website](https://ayaneo.com/goods/8451695378677?) . The AM01 mini PC is reminiscent of the Macintosh Classic and is available in multiple configurations. The AM01 is much smaller than the Macintosh Classic, but it's packed with features and can be purchased with a memory configuration of between 8 and 32GB and primary SSD storage options of up to 1TB.
@@ -52,18 +46,6 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 ![Ayaneo AM01 Mini PC](https://cdn.mos.cms.futurecdn.net/WGEpGR8Pts2g8USJ2KBFfh-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Ayaneo)
 
  The pricing is fairly attractive, with the highest-spec options retailing at $449 including shipping, though customs charges may vary depending on country. Also, you may not receive full warranty support, depending on country. There are, of course, other mini PCs to consider — the main selling point of the AM01 is its Macintosh-themed design. If you're just looking for a mini PC,[Asus' NUCs](https://www.tomshardware.com/desktops/mini-pcs/asus-reveals-pricing-for-its-new-nucs-nuc-14-pro-starts-at-dollar394-and-nuc-14-pro-at-dollar869) are a local option.
@@ -72,12 +54,6 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -86,14 +62,11 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,46 +77,21 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-perfect-pivoting-mastering-video-angles-for-social-success/"><u>[New] 2024 Approved  Insta Perfect Pivoting  Mastering Video Angles for Social Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-inside-track-understanding-sound-rights-on-instagram-for-2024/"><u>[New] Inside Track  Understanding Sound Rights on Instagram for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-step-up-in-the-metaverse-game-with-these-critical-devices-top-7/"><u>[Updated] Step Up in the Metaverse Game with These Critical Devices (Top 7)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-examining-the-impact-of-stabilized-photos-in-adobe/"><u>2024 Approved  Examining the Impact of Stabilized Photos in Adobe</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/5-best-apps-for-voice-translation-from-english-to-bangla/"><u>5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-language-changers-to-make-your-videos-accessible/"><u>Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-getting-real-broadcast-your-life-on-youtube-using-obs/"><u>In 2024, Getting Real  Broadcast Your Life on Youtube Using OBS</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nokia C32? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-obsudios-analysis-selecting-the-ideal-recording-software/"><u>In 2024, Obsudio's Analysis  Selecting the Ideal Recording Software</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-nokia-c110-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Nokia C110 FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>New 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>New In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-maximize-yandex-translate-in-video-translation-and-beyond/"><u>New Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-translate-video-from-japanese-to-english-online-for-free/"><u>New Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/recording-your-screen-and-videos-on-android/"><u>Recording Your Screen & Videos on Android</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-best-translator-to-translate-videos-online/"><u>The Best Translator to Translate Videos Online</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unlocking-global-audiences-top-video-language-converters/"><u>Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>Updated 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-instagram-videos-for-global-engagement/"><u>Updated 2024 Approved How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>Updated 2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-srt-subtitle-translation-tools-and-techniques/"><u>Updated 2024 Approved SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>Updated In 2024, Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Updated In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>Updated In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-the-best-translator-to-translate-videos-online/"><u>Updated The Best Translator to Translate Videos Online</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-enhance-collaboration-with-these-zoom-tools-for-2024/"><u>[New] Enhance Collaboration with These Zoom Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-discover-websites-your-gateway-to-youtube-branded-content/"><u>[Updated] 2024 Approved Discover Websites Your Gateway to YouTube Branded Content</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-lava-yuva-2-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Lava Yuva 2? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/insightful-critique-unveiling-the-features-of-philips-wake-up-light-model-hf3505/"><u>Insightful Critique: Unveiling the Features of Philips Wake-Up Light Model HF3505</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/streaming-sounds-into-your-social-story-arcs-for-2024/"><u>Streaming Sounds Into Your Social Story Arcs for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-expert-insights-into-computer-components/"><u>Tom's Tech Reviews: Expert Insights Into Computer Components</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-value-pruveeo-f5-1080p-dash-cam-assessment-for-budget-shoppers/"><u>Top Value Pruveeo F5 1080P Dash Cam Assessment for Budget Shoppers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-full-potential-using-polarrs-image-tools/"><u>Unlock Full Potential Using Polarr's Image Tools</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

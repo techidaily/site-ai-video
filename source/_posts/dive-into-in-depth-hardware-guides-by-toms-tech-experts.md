@@ -1,7 +1,7 @@
 ---
 title: Dive Into In-Depth Hardware Guides by Tom's Tech Experts
-date: 2024-09-08T23:48:01.438Z
-updated: 2024-09-09T23:48:01.438Z
+date: 2024-09-12T19:24:12.019Z
+updated: 2024-09-14T21:58:45.564Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/Ss2eVZGtTT6wVC5yg84z3Y-320-80.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Discover Tom's Ultimate Guide to Computer Components - Your One-Stop Tech Resource
 
 Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs like this are commonly described as having adopted the[MoDT](https://www.tomshardware.com/news/intel-raptor-lake-mobile-chips-get-soldered-to-micro-atx-motherboards) (Mobile on Desktop) hybrid design.[Mini PCs](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-g7-pt-touted-as-worlds-first-amd-advantage-mini-pc-packs-an-amd-r9-7945hx-and-rx-7600m-xt) and[All-in-Ones](https://www.tomshardware.com/tag/all-in-one-pcs) were the first to make MoDT popular, but they also usually used mobile GPUs (or just integrated graphics). In contrast, Lenovo’s new Legion 7000K PC series, now[available in China](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fitem.lenovo.com.cn%2Fproduct%2F1037096.html) , come in sizable tower cases and are sold with powerful Nvidia[GeForce RTX 40](https://www.tomshardware.com/features/nvidia-ada-lovelace-and-geforce-rtx-40-series-everything-we-know) series GPUs pre-installed.
@@ -23,12 +17,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KiWmBjf3WBxdHs7uNFYu2U-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Lenovo)
 
  Looking more closely at the new Legion 7000K machines, we see that they come with a choice between two pretty strong Intel Raptor Lake Refresh mobile CPUs. The most powerful option is the[Core i9-14900HX](https://www.tomshardware.com/pc-components/cpus/intel-unleashes-14th-gen-raptor-lake-refresh-hx-series-laptops-cpus-refreshed-chips-with-up-to-24-cores-58-ghz-boost-clock-and-192gb-ddr5-support) , with 24C/32C, clock speeds up to 5.8 GHz, and 36MB Smart Cache. This powerful chip can be quite thrifty with its 55W base power, but also has a max turbo power of a laptop-melting 157W. In[Geekbench](https://browser.geekbench.com/processor-benchmarks) nT rankings, for example, the performance of this CPU sits snugly between the Core i9-13900 and the Ryzen 9 PRO 7945 desktop chips – so it isn’t a lightweight.
@@ -41,30 +29,12 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KHmtZBvJU6LcChAReYSDBU-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Lenovo)
 
  Another spec of the Legion 7000K gaming desktop that users will have to decide upon is what GPU to choose. The product page allows the choice of RTX 4060 / Ti, RTX 4070 Ti / Super. As with a traditional desktop PC, users can upgrade at any time later.
 
  Lastly, the new Legion systems come with a standard 32GB DDR5-5600 dual-channel RAM and 1TB[PCIe Gen4 storage](https://www.tomshardware.com/reviews/best-ssds,3891.html) . Again, upgrades shouldn’t be a problem in the future with SODIMMs presumably used for RAM, and two M.2 slots and two SATA ports available for storage.
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -83,8 +53,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -94,55 +62,24 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-secure-and-enhance-slack-communications-with-top-10-free-audio-apps/"><u>[New] 2024 Approved  Secure & Enhance Slack Communications with Top 10 Free Audio Apps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-make-every-snap-spectacited-top-editors-for-snapchats-best-effects-for-2024/"><u>[New] Make Every Snap Spectacited  Top Editors for Snapchat's Best Effects for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-performing-tiktok-metrics-for-account-growth-analysis-for-2024/"><u>[New] Top Performing TikTok Metrics for Account Growth Analysis for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-complete-assessment-of-macos-and-screenflow-v4/"><u>[Updated] 2024 Approved  Complete Assessment of macOS and ScreenFlow V4</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-prime-selector-20-twitters-animated-treasure-chest/"><u>[Updated] 2024 Approved  Prime Selector 2.0  Twitter's Animated Treasure Chest</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-az-screen-recorder-review-series/"><u>[Updated] In 2024, AZ Screen Recorder Review Series</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-first-edition-top-notch-user-centric-game-edit-apps/"><u>2024 Approved  First Edition  Top-Notch, User-Centric Game Edit Apps</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-selfie-showstoppers-adding-whimsy-with-the-cartoon-lens/"><u>2024 Approved  Selfie Showstoppers  Adding Whimsy with the Cartoon Lens</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>2024 Approved Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-translate-live-video-making-it-possible-with-the-best-tool/"><u>2024 Approved Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/9-best-french-video-translators-online-and-download-options/"><u>9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-brief-review-of-capcut-translate-with-alternative/"><u>A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/flawlessly-merged-the-linkage-of-instagram-and-tiktok/"><u>Flawlessly Merged  The Linkage of Instagram & TikTok</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guide-installing-intel-wi-fi-and-lan-drivers-in-windows/"><u>Guide: Installing Intel Wi-Fi & LAN Drivers in Windows</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-vivo-y28-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Vivo Y28 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-instagram-videos-for-global-engagement/"><u>How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-expert-advice-on-converting-high-quality-ipv-files-to-mp4/"><u>In 2024, Expert Advice on Converting High-Quality IPV Files to MP4</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-how-to-use-korean-to-english-video-translators-for-creators/"><u>In 2024, How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://network-issues.techidaily.com/laptop-lament-lost-light-levels/"><u>Laptop Lament: Lost Light Levels</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/leaving-with-honor-a-disconnect-guide-for-servers/"><u>Leaving with Honor  A Disconnect Guide for Servers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/masterclass-emulation-best-ps3-clones-on-your-computer-for-2024/"><u>Masterclass Emulation  Best PS3 Clones on Your Computer for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/melody-cleanse-free-your-content-from-unwanted-musical-elements-for-2024/"><u>Melody Cleanse Free Your Content From Unwanted Musical Elements for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>New 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>New 2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-complete-guide-of-top-7-video-language-translators/"><u>New A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-everything-you-want-to-know-about-kapwing-video-translation/"><u>New Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>New How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-update-glitches-discord-patched-its-most-recent-software-issue/"><u>No More Update Glitches: Discord Patched Its Most Recent Software Issue</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-realme-11x-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Realme 11X 5G Device</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-7-best-real-time-video-translation-apps/"><u>Updated 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Updated 2024 Approved Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-10-free-video-translators-to-mitigate-translation-risks/"><u>Updated Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versain-2024/"><u>Updated How to Translate Audio/Video Content From Spanish to English and Vice Versa,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Updated In 2024, Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated In 2024, How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-translate-video-from-japanese-to-english-online-for-free/"><u>Updated Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-f23-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo F23 5G Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-playbook-a-guide-to-efficiently-posting-srt-files-online-for-2024/"><u>[Updated] The Ultimate Playbook A Guide to Efficiently Posting SRT Files Online for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-step-by-step-to-supercharge-videos-on-snapchat/"><u>2024 Approved Step by Step to Supercharge Videos on Snapchat</u></a></li>
+<li><a href="https://ai-video.techidaily.com/capturing-moments-kids-laughter/"><u>Capturing Moments, Kids Laughter</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/common-wacom-device-malfunctions-and-how-to-resolve-them-quickly/"><u>Common Wacom Device Malfunctions and How to Resolve Them Quickly</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dissecting-the-pixel-slate-experience-navigating-through-chromeos-challenges/"><u>Dissecting the Pixel Slate Experience: Navigating Through ChromeOS Challenges</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/essential-steps-to-fix-unresponsive-keyboard-shortcuts-on-windows-11/"><u>Essential Steps To Fix Unresponsive Keyboard Shortcuts on Windows 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-11-pro-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 11 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/innovative-computing-solutions-featured-and-analyzed-by-toms-gurus/"><u>Innovative Computing Solutions Featured and Analyzed by Tom's Gurus</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-expert-approved-free-vob-video-editing-solutions/"><u>New In 2024, Expert-Approved Free VOB Video Editing Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-money-making-guide-on-social-media-for-2024/"><u>The Ultimate Money-Making Guide on Social Media for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/toms-tech-review-in-depth-guides-and-gear-insights/"><u>Tom's Tech Review: In-Depth Guides & Gear Insights</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

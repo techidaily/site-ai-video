@@ -1,7 +1,7 @@
 ---
 title: Introducing the Geekom AX8 - Your New Workhorse with Advanced Intel 13Th Gen and Latest AMD Ryzen CPUs
-date: 2024-09-08T23:48:01.372Z
-updated: 2024-09-09T23:48:01.372Z
+date: 2024-09-07T18:25:57.003Z
+updated: 2024-09-14T20:18:31.041Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/uNifswyx5SwsirsCRSFsz6-320-80.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Full Powered Computing on the Go – Folding Mini Keyboard Houses AMD Ryzen CPU, Touchscreen Controls, and Self-Contained Battery; Just Add a Display
 
 Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldable keyboard. The company shared its live presentation via video sharing site[bilibili](https://emakicms.com/brand/21/articles/view/2009106) , where the presenter pulled out the actual device from his back pocket. The keyboard PC also has a built-in trackpad, so you don't need to bring a mouse to use it. Interestingly, the portable mini PC lacks a built-in display, but the presenters had one interesting reason as to why it didn't include one.
@@ -41,38 +35,14 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
 ![Linglong foldable keyboard PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Linglong on Bilibili)
 
 ![Linglong foldable keyboard PC ](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Linglong / bilibili)
 
 ![Linglong foldable keyboard PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Linglong on Bilibili)
 
  The company boasts ten hours of battery life for light office work and up to six hours for watching movies. However, heavy workloads and gaming will cut down its useful life to just four hours or so. We should also consider that this doesn't yet take into account the power use of a display. So, if you plug in a screen that takes juice from the keyboard PC, you can expect the battery life to go down significantly if the screen you're using doesn't have its own power supply.
@@ -83,12 +53,6 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
  But even though some users say that this is an overpriced device, this is an interesting new form factor that takes advantage of the prevalence of screens everywhere. Linglong aims to revolutionize laptops by allowing its mini PC to use other displays that are available around us (or to even use AR glasses that give users a wider view angle without taking up a lot of space).
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -97,14 +61,11 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,50 +76,31 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-professional-content-creation-tools-review-studio-vs-beta/"><u>[New] Professional Content Creation Tools Review  Studio Vs. Beta</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-top-10-relaxing-hobbies-outside-the-athletic-domain/"><u>[New] Top 10 Relaxing Hobbies Outside the Athletic Domain</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-moments-10-essential-ig-tools-everyone-needs/"><u>[Updated] 2024 Approved  Mastering Moments  10 Essential IG Tools Everyone Needs</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-video-quality-editing-tips-for-published-content-for-2024/"><u>[Updated] Enhancing Video Quality  Editing Tips for Published Content for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-streamlining-your-remote-podcast-setup/"><u>[Updated] In 2024, Streamlining Your Remote Podcast Setup</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-motion-control-in-vr-keeping-nausea-at-bay/"><u>[Updated] Motion Control in VR  Keeping Nausea at Bay</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-ragnors-rebirth-warriors-alliance/"><u>[Updated] Ragnor's Rebirth  Warriors Alliance</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-reviewing-microsoft-hololens-the-3d-interactive-future/"><u>[Updated] Reviewing Microsoft HoloLens  The 3D Interactive Future</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unleashing-the-full-potential-of-game-characters-with-voice-alteration-strategies-free/"><u>2024 Approved  Unleashing the Full Potential of Game Characters with Voice Alteration Strategies (Free)</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-money-making-moves-for-youtube-rookies/"><u>8 Key Money-Making Moves for YouTube Rookies</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Change/Add Location Filters on Snapchat For your Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-expert-tips-for-capturing-your-gaming-skills-in-obs/"><u>In 2024, Expert Tips for Capturing Your Gaming Skills in OBS</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-vivo-y100-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Vivo Y100 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-palette-perfection-unveiling-top-5-premium-color-tvs/"><u>In 2024, Palette Perfection  Unveiling Top 5 Premium Color TVs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-syma-x5c-exposed-perfect-pick-for-novice-aerial-enthusiasts/"><u>In 2024, Syma X5C Exposed  Perfect Pick for Novice Aerial Enthusiasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/insta-video-size-strategy-for-maximum-engagement/"><u>Insta Video Size Strategy for Maximum Engagement</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/invisible-viewers-for-fb-chronicles/"><u>Invisible Viewers for FB Chronicles</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-power-settings-fully-charged-notifications-for-win11/"><u>Navigating Power Settings: Fully Charged Notifications for Win11</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-best-tool-to-translate-youtube-video-to-arabic/"><u>New 2024 Approved Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>New 2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-brief-review-of-capcut-translate-with-alternative/"><u>New A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-tool-to-translate-youtube-video-to-arabic/"><u>New Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-video-language-changers-to-make-your-videos-accessible/"><u>New Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>New In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-convert-video-voice-to-text-online-for-free/"><u>New In 2024, How To Convert Video Voice to Text Online for Free?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New In 2024, Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-unlocking-global-audiences-top-video-language-converters/"><u>New Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/photoshop-stabilization-technique-utility-perspective-for-2024/"><u>Photoshop Stabilization Technique  Utility Perspective for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/top-15-booktok-books-recommendation-tiktok-books/"><u>Top 15 Booktok Books Recommendation [TikTok Books]</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated In 2024, A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-easy-steps-to-translate-video-on-twitter/"><u>Updated In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-9-choices-for-video-auto-translate/"><u>Updated In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pioneering-collage-apps-for-an-android-aesthetic/"><u>[Updated] Pioneering Collage Apps for an Android Aesthetic</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/fathers-day-special-unleash-your-gameplay-with-the-latest-ibuypower-gaming-desktop/"><u>Father's Day Special: Unleash Your Gameplay with the Latest iBuyPower Gaming Desktop</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/free-user-friendly-srt-services-ranked-1-to-8/"><u>Free, User-Friendly SRT Services – Ranked #1 to #8</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-realme-gt-neo-5-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-vanish-obscuring-elements-and-sharpen-your-images-in-affinity-photo/"><u>How to Vanish Obscuring Elements and Sharpen Your Images in Affinity Photo</u></a></li>
+<li><a href="https://win-able.techidaily.com/improving-your-game-boosting-ubisoft-connects-downloading-speeds/"><u>Improving Your Game: Boosting Ubisoft Connect's Downloading Speeds</u></a></li>
+<li><a href="https://ai-video.techidaily.com/insightful-critique-unveiling-the-features-of-philips-wake-up-light-model-hf3505/"><u>Insightful Critique: Unveiling the Features of Philips Wake-Up Light Model HF3505</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phones-algorithm-making-marketing-decisions-for-you/"><u>Is Your Phone's Algorithm Making Marketing Decisions For You?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/toms-tech-insights-exploring-the-latest-in-hardware/"><u>Tom's Tech Insights: Exploring the Latest in Hardware</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-value-pruveeo-f5-1080p-dash-cam-assessment-for-budget-shoppers/"><u>Top Value Pruveeo F5 1080P Dash Cam Assessment for Budget Shoppers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
+<li><a href="https://ai-video.techidaily.com/unveiling-the-asus-nuc-14-ultra9-cpu-power-meets-top-tier-gaming-performance-with-rtx-4070-gpu/"><u>Unveiling the Asus NUC 14 — Ultra9 CPU Power Meets Top-Tier Gaming Performance with RTX 4070 GPU</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

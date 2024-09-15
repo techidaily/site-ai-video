@@ -1,7 +1,7 @@
 ---
 title: "Tom's Tech Gear: Expert Insights on Computer Hardware"
-date: 2024-09-08T23:48:01.557Z
-updated: 2024-09-09T23:48:01.557Z
+date: 2024-09-09T19:03:08.319Z
+updated: 2024-09-14T21:11:39.112Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0747a09da8301ee779ce2acf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware
 
 Mini PC specialist Minisforum has launched a new device, claiming several firsts. The new[AtomMan X7 Ti](https://www.minisforum.com/page/x7ti/index.html?lang=en) becomes the first in the firm's AtomMan line, described as a high-end cutting-edge marque by Minisforum. It is also claimed to be the “first Intel Ultra 9 AI Mini PC with a 4-inch Touchscreen.” With the rising popularity of[extra screens in PCs](https://www.tomshardware.com/pc-components/cooling/hands-on-lian-lis-lcd-screen-fans-turn-heads-and-are-surprisingly-affordable-but-not-as-configurable-as-id-like) , integrating one into a compact desktop might be a popular idea.
@@ -27,32 +21,14 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  Moving inside, the star of the show is the new Intel Core Ultra 9 processor[185H](https://www.intel.com/content/www/us/en/products/sku/236849/intel-core-ultra-9-processor-185h-24m-cache-up-to-5-10-ghz/specifications.html) with a 16C/22T CPU running at up to 5.1 GHz, and onboard Arc GPU with eight Xe cores running at up to 2.35 GHz. This[Meteor Lake](https://www.tomshardware.com/news/intel-details-core-ultra-meteor-lake-architecture-launches-december-14) chip is cooled by the new Cold Wave cooling system featuring a large diameter fan, 3 copper heatpipes, and a phase-change module.
@@ -65,12 +41,6 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -79,14 +49,11 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,35 +64,24 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-capturing-content-in-the-digital-age-top-strategies/"><u>[Updated] In 2024, Capturing Content in the Digital Age  Top Strategies</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-microphone-feedback-audio-recorder/"><u>[Updated] In 2024, Microphone Feedback  Audio Recorder</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>2024 Approved Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-easy-steps-to-translate-video-on-twitter/"><u>2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/enhance-your-conference-experience-with-webcam-recordings-for-2024/"><u>Enhance Your Conference Experience with Webcam Recordings for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-lava-blaze-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Vivo S18 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-repair-d3dx9noplugin-error-a-comprehensive-guide/"><u>How To Repair 'D3dx9_noplugin' Error: A Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-youtube-videos-to-english-subtitles/"><u>How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-realme-narzo-n55-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Realme Narzo N55 FRP</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>New 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-easy-steps-to-translate-video-on-twitter/"><u>New Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-8-best-daw-for-recording-mixing-and-mastering/"><u>New In 2024, 8 Best DAW For Recording, Mixing and Mastering</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>New In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>New In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://review-topics.techidaily.com/oneplus-messages-recovery-recover-deleted-messages-from-oneplus-by-fonelab-android-recover-messages/"><u>OnePlus Messages Recovery - Recover Deleted Messages from OnePlus</u></a></li>
-<li><a href="https://windows11.techidaily.com/personalize-windows-appearance-with-popular-photographs/"><u>Personalize Windows' Appearance with Popular Photographs</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-impact-of-instant-subscribing-on-online-viewing-habits/"><u>The Impact of Instant Subscribing on Online Viewing Habits</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unleash-creativity-boost-productivity-essential-tasks-for-the-modern-listener-for-2024/"><u>Unleash Creativity, Boost Productivity  Essential Tasks for the Modern Listener for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-a-brief-review-of-capcut-translate-with-alternative/"><u>Updated 2024 Approved A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Updated 2024 Approved Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>Updated 2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-complete-guide-of-top-7-video-language-translators/"><u>Updated A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-auto-translate-youtube-videos-into-different-languages/"><u>Updated How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-budget-gaming-hardware-the-ultimate-keyboard-list/"><u>[New] Essential Budget Gaming Hardware The Ultimate Keyboard List</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-perfect-your-audio-journey-iphoneipad-podcasting-secrets-unveiled-for-2024/"><u>[New] Perfect Your Audio Journey IPhone/iPad Podcasting Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-az-video-logger-full-application-breakdown/"><u>2024 Approved AZ Video Logger Full Application Breakdown</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-cutting-edge-settings-for-online-broadcasts/"><u>2024 Approved Cutting-Edge Settings for Online Broadcasts</u></a></li>
+<li><a href="https://ai-video.techidaily.com/comparative-analysis-of-revenue-projections-amd-sets-higher-target-at-4-billion-while-nvidia-leads-the-race-with-a-40-billion-goal/"><u>Comparative Analysis of Revenue Projections: AMD Sets Higher Target at $4 Billion, While Nvidia Leads the Race with a $40 Billion Goal</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-hidden-gems-with-apple-musics-new-exploration-feature-a-comprehensive-review/"><u>Discover Hidden Gems with Apple Music's New Exploration Feature - A Comprehensive Review</u></a></li>
+<li><a href="https://ai-video.techidaily.com/discover-the-latest-from-minisforum-ultraportable-mini-pc-boasting-amd-ryzen-9-and-nvidia-rtx-gaming-performance/"><u>Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dissecting-the-pixel-slate-experience-navigating-through-chromeos-challenges/"><u>Dissecting the Pixel Slate Experience: Navigating Through ChromeOS Challenges</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dive-into-in-depth-hardware-guides-by-toms-tech-experts/"><u>Dive Into In-Depth Hardware Guides by Tom's Tech Experts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/easily-overcome-deathloops-pc-crashes-a-step-by-step-solution/"><u>Easily Overcome Deathloop's PC Crashes: A Step-by-Step Solution</u></a></li>
+<li><a href="https://ai-video.techidaily.com/exploring-high-performance-devices-a-look-inside-toms-hardware-universe/"><u>Exploring High-Performance Devices: A Look Inside Tom's Hardware Universe</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-achieve-unmatched-visuals-the-ultimate-guide-to-video-enhancer-22/"><u>In 2024, Achieve Unmatched Visuals The Ultimate Guide to Video Enhancer 2.2</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
