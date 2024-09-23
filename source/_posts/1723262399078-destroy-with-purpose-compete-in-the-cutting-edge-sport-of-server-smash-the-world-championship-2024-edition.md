@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2024-09-17T18:23:47.570Z
-updated: 2024-09-18T16:39:42.826Z
+date: 2024-09-17T16:59:39.815Z
+updated: 2024-09-23T18:48:52.310Z
 tags:
   - desktop
 categories:
@@ -56,28 +56,35 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-key-applications-for-superior-vtuber-audible-identity/"><u>[New] 2024 Approved Key Applications for Superior Vtuber Audible Identity</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-master-the-art-of-customizing-youtube-thumbnails-and-improving-visibility/"><u>[New] 2024 Approved Master the Art of Customizing YouTube Thumbnails and Improving Visibility</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-streamlining-your-tweets-with-video-upload-rules/"><u>[New] Streamlining Your Tweets with Video Upload Rules</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>2024 Approved Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-easy-steps-to-translate-video-on-twitter/"><u>2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/5-leading-dvd-copying-tools-for-windows-10-comprehensive-reviews-and-comparisons/"><u>5 Leading DVD Copying Tools for Windows 10 - Comprehensive Reviews and Comparisons</u></a></li>
-<li><a href="https://network-issues.techidaily.com/dxgkrnlsys-key-to-solving-blue-screen-in-winos/"><u>dxgkrnl.sys: Key to Solving Blue Screen in WinOS</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-insight-converting-esd-files-to-iso-on-windows-machines/"><u>Essential Insight: Converting ESD Files to ISO on Windows Machines</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-ultimate-kickboxing-and-karate-game-round-up/"><u>In 2024, Ultimate Kickboxing & Karate Game Round-Up</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>New 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-are-you-searching-for-the-best-canon-lut-download-this-article-provides-the-best-recommendations-for-creating-the-best-professional-videos-for-2024./"><u>Updated Are You Searching for the Best Canon LUT Download? This Article Provides the Best Recommendations for Creating the Best Professional Videos for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>Updated In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-a-concise-guide-to-speedy-mac-screen-capture/"><u>[New] A Concise Guide to Speedy Mac Screen Capture</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-enhancing-realism-in-ar-worlds-through-lut-techniques-for-2024/"><u>[New] Enhancing Realism in AR Worlds Through LUT Techniques for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unlocking-the-potential-of-your-laptops-recording-features/"><u>[New] In 2024, Unlocking the Potential of Your Laptop's Recording Features</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-navigating-android-video-calls-effortlessly/"><u>[Updated] In 2024, Navigating Android Video Calls Effortlessly</u></a></li>
+<li><a href="https://ai-video.techidaily.com/bang-for-your-buck-the-acer-predator-orion-50-revealed-top-tier-tech-at-a-fraction-of-the-price/"><u>Bang for Your Buck: The Acer Predator Orion 50# Revealed – Top-Tier Tech at a Fraction of the Price</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-shared-calendars-keeping-busy-families-organized-in-7-ways/"><u>Best Shared Calendars: Keeping Busy Families Organized in 7 Ways</u></a></li>
+<li><a href="https://ai-video.techidaily.com/comprehensive-test-of-the-corsair-one-i500-the-ultimate-in-sleek-small-pc-reviews/"><u>Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews</u></a></li>
+<li><a href="https://ai-video.techidaily.com/exploring-high-performance-devices-a-look-inside-toms-hardware-universe/"><u>Exploring High-Performance Devices: A Look Inside Tom's Hardware Universe</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-frostbite-fame-highlights-of-cold-climates-games/"><u>In 2024, Frostbite Fame Highlights of Cold Climates Games</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/modern-ai-graphics-cards-power-gluttony-single-unit-consumes-37-mwhyear-eclipsing-homes-energy-usage-by-13-millions/"><u>Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-best-pc-setups-for-serious-gamers-balancing-cost-with-performance/"><u>The Best PC Setups for Serious Gamers : Balancing Cost with Performance</u></a></li>
+<li><a href="https://ai-video.techidaily.com/toms-tech-gear-expert-insights-on-computer-hardware/"><u>Tom's Tech Gear: Expert Insights on Computer Hardware</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unleash-potential-effective-desktop-sharing-on-livestreaming-platforms-for-2024/"><u>Unleash Potential Effective Desktop Sharing on Livestreaming Platforms for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/unlocking-insights-with-toms-hardware-your-source-for-cutting-edge-tools/"><u>Unlocking Insights with Tom's Hardware: Your Source for Cutting-Edge Tools</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unpacking-the-dbpower-600a-peak-power-device-reviewed-at-18000mah-capacity-a-trustworthy-portable-charger/"><u>Unpacking the DBPOWER 600A Peak Power Device Reviewed at 18,000mAh Capacity: A Trustworthy Portable Charger</u></a></li>
+<li><a href="https://ai-video.techidaily.com/unveiling-the-best-in-computing-with-toms-gear/"><u>Unveiling the Best in Computing with Tom's Gear</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

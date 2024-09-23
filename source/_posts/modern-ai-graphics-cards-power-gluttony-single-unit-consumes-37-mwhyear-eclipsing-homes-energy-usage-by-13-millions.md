@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-09-16T23:50:43.125Z
-updated: 2024-09-18T21:45:55.072Z
+date: 2024-09-22T16:04:11.720Z
+updated: 2024-09-23T16:43:36.053Z
 tags:
   - desktop
 categories:
@@ -36,6 +36,13 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -59,27 +66,18 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-securely-save-fb-high-definition/"><u>[New] 2024 Approved Securely Save FB High Definition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-prosperous-gaming-vids-through-smart-hash-implementation/"><u>[Updated] In 2024, Prosperous Gaming Vids Through Smart Hash Implementation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-how-to-for-harnessing-hd-video-from-facebook-feeds/"><u>2024 Approved The How-To for Harnessing HD Video From Facebook Feeds</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://fox-that.techidaily.com/breeze-through-troubleshooting-the-ultimate-guide-to-common-apple-pay-fixes/"><u>Breeze Through Troubleshooting: The Ultimate Guide to Common Apple Pay Fixes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-tips-for-screen-recording-on-lenovo-devices-for-2024/"><u>Essential Tips for Screen Recording on Lenovo Devices for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-top-10-emerging-youtube-channels-to-spark-motivation/"><u>In 2024, Top 10 Emerging YouTube Channels to Spark Motivation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-translate-any-hindi-video-into-english-with-ai/"><u>In 2024, Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcome-crashing-problems-in-nba-k23-for-pc-learn-our-best-solutions/"><u>Overcome Crashing Problems in NBA ^K23 for PC – Learn Our Best Solutions!</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/top-5-utrolige-gjenstander-for-optimert-online-og-offisielt-video-voksmenhet/"><u>Top 5 Utrolige Gjenstander for Optimert Online Og Offisielt Video-Voksmenhet</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-any-hindi-video-into-english-with-ai/"><u>Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-combining-youtube-harmonies-in-moving-images-for-2024/"><u>[New] Combining YouTube Harmonies in Moving Images for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elite-mp4-streamer-system-for-fb/"><u>[New] Elite MP4 Streamer System for FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-must-have-keyword-gurus-for-video-success/"><u>[Updated] 2024 Approved 10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-prime-video-communication-platforms-for-modern-tech/"><u>[Updated] In 2024, Prime Video Communication Platforms for Modern Tech</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-power-of-grading-insights-from-dr-john-doe/"><u>[Updated] Unveiling the Power of Grading Insights From Dr. John Doe</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/asus-unveils-new-nuc-pertplus-model-packing-a-meteor-lake-cpu-core-ultra-5-125h-for-860/"><u>Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860</u></a></li>
+<li><a href="https://ai-video.techidaily.com/be-transparent-and-detailed/"><u>Be Transparent and Detailed</u></a></li>
+<li><a href="https://ai-video.techidaily.com/expert-analysis-on-hardware-by-toms-team/"><u>Expert Analysis on Hardware by Tom's Team</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/explore-and-download-the-latest-electronic-dance-music-edm/"><u>Explore & Download the Latest Electronic Dance Music (EDM)</u></a></li>
+<li><a href="https://ai-video.techidaily.com/exploring-hardware-insights-with-tom-your-go-to-resource/"><u>Exploring Hardware Insights with Tom - Your Go-To Resource</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-value-pruveeo-f5-1080p-dash-cam-assessment-for-budget-shoppers/"><u>Top Value Pruveeo F5 1080P Dash Cam Assessment for Budget Shoppers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

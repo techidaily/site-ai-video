@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2024-09-14T17:39:04.355Z
-updated: 2024-09-18T23:19:46.795Z
+date: 2024-09-16T17:41:39.363Z
+updated: 2024-09-23T18:54:19.046Z
 tags:
   - desktop
 categories:
@@ -77,26 +77,34 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-essential-guide-to-streaming-quality-via-obs-youtube-and-twitch/"><u>[New] 2024 Approved The Essential Guide to Streaming Quality via OBS, YouTube & Twitch</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-androids-leading-image-editing-does-pickup-reign-supreme/"><u>[New] Android's Leading Image Editing Does PickUp Reign Supreme?</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-perfecting-video-conferencing-the-ultimate-screen-recorder-list/"><u>[New] Perfecting Video Conferencing The Ultimate Screen Recorder List</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-studio-sound-techniques-mac-basics/"><u>[Updated] Studio Sound Techniques Mac Basics</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>2024 Approved Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/crafting-a-winning-live-broadcast-essentials-and-strategies-for-2024/"><u>Crafting a Winning Live Broadcast Essentials and Strategies for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-7-best-real-time-video-translation-apps/"><u>New 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-unlocking-global-audiences-top-video-language-converters/"><u>New In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/srt-subtitle-translation-tools-and-techniques/"><u>SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-redmi-note-13-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi Redmi Note 13 5G Phone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/k-creative-expression-mastering-jump-cut-usage/"><u>Unlock Creative Expression Mastering Jump Cut Usage</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated 2024 Approved A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-the-best-translator-to-translate-videos-online/"><u>Updated 2024 Approved The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-the-best-free-video-apps-for-os-multiplicity/"><u>[New] Decoding the Best Free Video Apps for OS Multiplicity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-moonlight-mastery-a-photographers-guidebook-to-nighttime-imagery/"><u>[Updated] In 2024, Moonlight Mastery A Photographer's Guidebook to Nighttime Imagery</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/be-unique-in-conversation-customized-whatsapp-tones-for-ios-android-users/"><u>Be Unique in Conversation Customized WhatsApp Tones for iOS, Android Users</u></a></li>
+<li><a href="https://ai-video.techidaily.com/comparative-analysis-of-revenue-projections-amd-sets-higher-target-at-4-billion-while-nvidia-leads-the-race-with-a-40-billion-goal/"><u>Comparative Analysis of Revenue Projections: AMD Sets Higher Target at $4 Billion, While Nvidia Leads the Race with a $40 Billion Goal</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262399078-destroy-with-purpose-compete-in-the-cutting-edge-sport-of-server-smash-the-world-championship-2024-edition/"><u>Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition</u></a></li>
+<li><a href="https://ai-video.techidaily.com/discovering-high-performance-tech-a-deep-dive-on-toms-hardware/"><u>Discovering High-Performance Tech: A Deep Dive on Tom's Hardware</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dissecting-the-pixel-slate-experience-navigating-through-chromeos-challenges/"><u>Dissecting the Pixel Slate Experience: Navigating Through ChromeOS Challenges</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dive-into-in-depth-hardware-guides-by-toms-tech-experts/"><u>Dive Into In-Depth Hardware Guides by Tom's Tech Experts</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-the-warframe-patch-installation-error-and-enjoy-a-smooth-gaming-experience/"><u>How to Fix the Warframe Patch Installation Error and Enjoy a Smooth Gaming Experience</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-honor-x50i-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Honor X50i Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-x-fold-2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo X Fold 2 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/introducing-the-geekom-ax8-your-new-workhorse-with-advanced-intel-13th-gen-and-latest-amd-ryzen-cpus/"><u>Introducing the Geekom AX8 - Your New Workhorse with Advanced Intel 13Th Gen and Latest AMD Ryzen CPUs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-12-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi 12 Phone Now with These Tips</u></a></li>
+<li><a href="https://ai-video.techidaily.com/slim-pocket-puppy-monitoring-pros/"><u>Slim-Pocket Puppy Monitoring Pros</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-the-secrets-of-microsofts-copilot-key-for-windows-11-users/"><u>Unveiling the Secrets of Microsoft's Copilot Key for Windows 11 Users</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>What are Location Permissions Life360 On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
