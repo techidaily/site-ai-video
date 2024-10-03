@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-09-21T02:30:31.012Z
-updated: 2024-09-28T01:59:48.485Z
+date: 2024-09-27T17:02:51.327Z
+updated: 2024-10-03T07:09:05.363Z
 tags:
   - desktop
 categories:
@@ -37,16 +37,10 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -72,22 +66,24 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-asmrs-influence-on-your-life/"><u>[New] Navigating ASMR’s Influence on Your Life</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-budget-friendly-video-settings-for-low-end-systems-for-2024/"><u>[Updated] Budget-Friendly Video Settings for Low-End Systems for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlocking-real-time-sharing-streaming-old-video-to-facebook-audiences/"><u>[Updated] In 2024, Unlocking Real-Time Sharing Streaming Old Video to Facebook Audiences</u></a></li>
-<li><a href="https://win-trending.techidaily.com/easy-steps-to-build-engaging-flipbooks-featuring-your-companys-story-and-visual-identity/"><u>Easy Steps to Build Engaging FlipBooks Featuring Your Company's Story and Visual Identity</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exploring-windows-11-essential-upgrades/"><u>Exploring Windows 11 Essential Upgrades</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-7-best-real-time-video-translation-apps/"><u>In 2024, 7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-xiaomi-13-ultra-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Xiaomi 13 Ultra?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>In 2024, Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-realme-12-proplus-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Realme 12 Pro+ 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>New Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>New In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Updated 2024 Approved Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/viral-vibrancy-trending-audio-amplifying-your-yt-shorts-for-2024/"><u>Viral Vibrancy Trending Audio Amplifying Your YT Shorts for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-exemplary-execution-using-apple-watch-to-open-mac/"><u>[New] 2024 Approved Exemplary Execution Using Apple Watch to Open Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-optimal-assortment-premier-webcam-stabilizers-for-2024/"><u>[New] Optimal Assortment Premier Webcam Stabilizers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-production-value-with-free-sfx-libraries/"><u>[Updated] In 2024, Boost Production Value with Free SFX Libraries</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>2024 Approved 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/detailed-guide-to-capturing-spherical-panoramic-shots/"><u>Detailed Guide to Capturing Spherical Panoramic Shots</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-anglers-selection-leading-fishing-cameras-ranked/"><u>In 2024, Prime Anglers' Selection Leading Fishing Cameras Ranked</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>New 2024 Approved Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>New 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>New In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>New In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-the-dilemma-when-your-surface-pro-cant-connect-to-wi-fi/"><u>Solving the Dilemma: When Your Surface Pro Can't Connect to Wi-Fi</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-video-language-changers-to-make-your-videos-accessible/"><u>Updated 2024 Approved Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated 2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>Updated In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://fox-that.techidaily.com/utilize-hashtags-and-challenges/"><u>Utilize Hashtags & Challenges</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/wondershare-filmoramp4/"><u>Wondershare FilmoraからMP4への動画変換方法 : 詳細チュートリアル</u></a></li>
 </ul></div>
 
