@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-10-07T19:32:11.942Z
-updated: 2024-10-08T18:27:45.630Z
+date: 2024-10-09T21:41:39.722Z
+updated: 2024-10-15T00:20:50.516Z
 tags:
   - desktop
 categories:
@@ -37,10 +37,10 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,16 +66,18 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-seamless-creation-at-your-fingertips-selecting-androids-top-editors/"><u>[New] 2024 Approved Seamless Creation at Your Fingertips Selecting Android's Top Editors</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-secrets-of-spectacular-insta-films/"><u>[Updated] In 2024, Unlocking the Secrets of Spectacular Insta Films</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-a-comprehensible-guide-on-saving-instagram-story-content/"><u>2024 Approved A Comprehensible Guide on Saving Instagram Story Content</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-advice-on-chromebooks-and-zoom/"><u>2024 Approved Expert Advice on Chromebooks and Zoom</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-camon-20-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Camon 20 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-google-pixel-fold-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Google Pixel Fold</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-on-track-with-the-compact-samsung-galaxy-fit2-tracker/"><u>Stay on Track with the Compact Samsung Galaxy Fit2 Tracker</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-any-hindi-video-into-english-with-ai/"><u>Updated In 2024, Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-unlocking-global-audiences-top-video-language-converters/"><u>Updated In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-uniting-images-into-an-eye-catching-narrative-display/"><u>[New] In 2024, Uniting Images Into an Eye-Catching Narrative Display</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-key-to-engaging-intros-in-podcast-scripts/"><u>[Updated] The Key to Engaging Intros in Podcast Scripts</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>2024 Approved Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-brief-review-of-capcut-translate-with-alternative/"><u>A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-a54-5g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy A54 5G To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-g42-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia G42 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://extra-information.techidaily.com/record-setting-stories-a-list-of-the-most-popular-reddit-threads/"><u>Record-Setting Stories A List of the Most Popular Reddit Threads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revised-info-user-rights-outline/"><u>Revised Info: User Rights Outline</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-7-best-real-time-video-translation-apps/"><u>Updated 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://win-popular.techidaily.com/windows-funktion-automatische-dateiloschprogrammierung-und-verwaltung/"><u>Windows-Funktion: Automatische Dateilöschprogrammierung Und -Verwaltung</u></a></li>
 </ul></div>
 

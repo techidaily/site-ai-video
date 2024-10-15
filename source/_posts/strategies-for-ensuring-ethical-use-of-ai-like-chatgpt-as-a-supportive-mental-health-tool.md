@@ -1,7 +1,7 @@
 ---
 title: Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool
-date: 2024-10-04T17:09:56.862Z
-updated: 2024-10-08T16:11:57.559Z
+date: 2024-10-12T23:38:09.832Z
+updated: 2024-10-14T22:25:38.037Z
 tags:
   - chatgpt
   - open-ai
@@ -34,16 +34,10 @@ False news can be categorized into three types:
  How will the law address the propagation of fake news through generative AI? Who will be held responsible for spreading false information—the users, developers, or the tools themselves?
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4 Ways Generative AI Can Be Used to Spread Disinformation
@@ -51,10 +45,10 @@ False news can be categorized into three types:
  To stay safe online, everyone needs to understand the risks of generative AI in spreading disinformation, as it comes in many different forms. Here are a few ways it can be used to manipulate people.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Generating Fake Content Online
@@ -66,6 +60,13 @@ False news can be categorized into three types:
 Here's the fictitious article that ChatGPT came up with:
 
 ![ChatGPT created a fictitious news article about corruption charges against Joe Biden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/chatgpt-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Surprisingly, the output was highly persuasive. It included the names and statements of authoritative figures to make the article more convincing. This shows how anyone can use such tools to generate false news and easily spread it online.
 
@@ -80,13 +81,6 @@ Here's the fictitious article that ChatGPT came up with:
 
  These examples all illustrate how chatbots can be utilized to mislead people.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Creating AI DeepFakes
 
  Someone can use deepfakes to create false videos of an individual saying or doing things they never did. They can use such tools for social engineering or running smear campaigns against others. Moreover, in today's meme culture, deepfakes can serve as tools for cyberbullying on social media.
@@ -94,6 +88,13 @@ Here's the fictitious article that ChatGPT came up with:
  Additionally, political adversaries may use deepfake audio and videos to tarnish the reputation of their opponents, manipulating public sentiment with the help of AI. So[AI-generated deepfakes pose numerous threats in the future](https://www.makeuseof.com/future-and-dangers-of-ai-deepfakes/) . According to a 2023[Reuters report](https://www.reuters.com/world/us/deepfaking-it-americas-2024-election-collides-with-ai-boom-2023-05-30/) , the rise of AI technology could impact America's 2024 elections. The report highlights the accessibility of tools like Midjourney and DALL-E that can easily create fabricated content and influence people's collective opinions.
 
  It's crucial, then, to be able to[identify videos created by deepfakes](https://www.makeuseof.com/how-can-you-tell-video-deepfake/) and distinguish them from originals.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Cloning Human Voices
 
@@ -113,13 +114,6 @@ Here's the fictitious article that ChatGPT came up with:
 4. Use fact-checking websites to verify the accuracy of information.
 
  By following these steps, you can identify and protect yourself from AI-driven misinformation.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Beware of Disinformation Spread by AI
 
@@ -142,16 +136,22 @@ Here's the fictitious article that ChatGPT came up with:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-comprehensive-report-editwave-suite-revamped/"><u>[Updated] Comprehensive Report EditWave Suite Revamped</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024s-most-wanted-the-definitive-guide-to-high-performance-gaming-machines/"><u>2024'S Most Wanted: The Definitive Guide to High-Performance Gaming Machines</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-ace-the-art-of-editing-say-goodbye-to-overflowing-tiktok-drafts/"><u>In 2024, Ace the Art of Editing Say Goodbye to Overflowing TikTok Drafts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-moto-g73-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Moto G73 5G Device SIM</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-meizu-21-pro-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Meizu 21 Pro Phone FRP Lock</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-technology-choices-insights-from-toms-hardware/"><u>Mastering Technology Choices - Insights From Tom's Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-your-electronic-needs-at-tomn-tech-haven-the-ultimate-resource/"><u>Mastering Your Electronic Needs at Tom'n Tech Haven - The Ultimate Resource</u></a></li>
-<li><a href="https://ai-video.techidaily.com/revolutionize-your-workflow-the-mighty-briefcase-with-up-to-amo-368tb-of-nvme-ssds-equipped-with-high-performance-components/"><u>Revolutionize Your Workflow: The Mighty Briefcase With Up to Amo 368TB of NVMe SSDs, Equipped with High-Performance Components</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/step-by-step-guide-adding-protective-watermarks-to-your-instagram-images/"><u>Step-by-Step Guide: Adding Protective Watermarks to Your Instagram Images</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-rated-laptops-and-computers-sales/"><u>Top Rated Laptops & Computers Sales</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-photos-from-10t-5g-by-fonelab-android-recover-photos/"><u>Undelete lost photos from 10T 5G.</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-the-insta-to-tik-connection/"><u>[New] 2024 Approved Navigating the Insta-to-Tik Connection</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-top-cheap-4k-recording-systems/"><u>[New] Top Cheap 4K Recording Systems</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-valheims-flora-frontier-unlocking-the-best-seeds-for-2024/"><u>[Updated] Valheim's Flora Frontier Unlocking the Best Seeds for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/easy-steps-to-translate-video-on-twitter/"><u>Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-xiaomi-civi-3-disney-100th-anniversary-edition-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Xiaomi Civi 3 Disney 100th Anniversary Edition Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-the-best-translator-to-translate-videos-online/"><u>In 2024, The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-insiders-guide-to-creating-stunning-iphone-hdr-photos/"><u>In 2024, The Insider's Guide to Creating Stunning iPhone HDR Photos</u></a></li>
+<li><a href="https://driver-download.techidaily.com/mastering-your-device-the-definitive-solution-to-download-the-dell-mouse-driver/"><u>Mastering Your Device: The Definitive Solution to Download the Dell Mouse Driver</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solutions-for-apples-iphone-email-problems/"><u>Step-by-Step Solutions for Apple's iPhone Email Problems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-oppo-find-x7-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Oppo Find X7</u></a></li>
+<li><a href="https://ai-video.techidaily.com/translate-video-from-japanese-to-english-online-for-free/"><u>Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-unleash-the-chaos-10-essential-glitch-art-video-editing-apps-for-ios-and-android/"><u>Updated 2024 Approved Unleash the Chaos 10 Essential Glitch Art Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated How To Translate Videos in Tamil for a Wider Reach</u></a></li>
 </ul></div>
 

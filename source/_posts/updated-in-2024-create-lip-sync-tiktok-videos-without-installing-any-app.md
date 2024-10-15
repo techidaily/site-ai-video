@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App
-date: 2024-10-03T18:04:35.819Z
-updated: 2024-10-08T18:40:11.351Z
+date: 2024-10-13T17:47:18.880Z
+updated: 2024-10-14T22:16:18.467Z
 tags: 
   - ai translate video
   - ai generate video
@@ -73,6 +73,13 @@ If you are satisfied with the results of your edits, click Next to proceed to th
 
 Creating a video on TikTok by lip-syncing is a fun and creative way to express yourself and connect with others. By following the steps above, you can create a lip-sync video on the TikTok app with ease. Keep in mind that by using these steps, you need to memorize the sentences and understand the beat of the chosen songs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3. How to Make Lip Sync Video Without Memorizing the Words
 
 Making a ****TikTok lip-sync**** video can be challenging because you must remember and match the words with the music. But there are three simple methods to make it easier.
@@ -92,19 +99,6 @@ Start by following the first to fourth steps from the guide in Part 2 above.
 On the recording screen, click on the Speed icon on the right side of the screen. To make it slower, choose 2x or 3x. This step will make your recording time 2 or 3 times longer than it should be.
 
 ![Set speed to delay the recording](https://images.wondershare.com/virbo/article/2024/03/tiktok-lip-sync-7.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 3.** Tap on the red button.
 
@@ -156,13 +150,6 @@ Insert the text and adjust the voice settings. If you want to insert your own au
 
 ![Talking Photo tool interface](https://images.wondershare.com/virbo/article/2024/03/tiktok-lip-sync-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you have successfully made your own TikTok lip-sync video. You can upload it to TikTok and share it with your followers. For more detailed instructions, you can see how to use [<u>Virbo’s Photo Talking tool</u>](https://virbo.wondershare.com/guide/talking-photo.html).
 
 ## Part 4: How To Lipsync Your Video to Any Language Using AI Video Translator
@@ -197,6 +184,13 @@ Once inside the Video Translator interface, upload the video file you wish to tr
 
 Virbo’s Video Translator will use its advanced algorithms to translate the audio and synchronize it with the video seamlessly. Depending on the length and complexity of the video, the translation process may take some time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Lip-syncing on TikTok has become a significant aspect of TikTok culture. It helps users show their creativity, entertain people, and maybe even become famous. Making ****mouth sync TikTok**** videos usually means remembering lines and matching them to music, but there's an easier way with Wondershare Virbo's Talking Photo tool. This tool allows you to upload a portrait and sync it with audio without remembering the lines.
@@ -209,13 +203,6 @@ Also, Wondershare Virbo has a Video Translator tool that allows you to translate
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Easy Steps to Translate Video on Twitter
 
@@ -293,6 +280,13 @@ Once you receive the translation, review it to ensure accuracy and readability. 
 
 ![translate-twitter-video-4.jpg](https://images.wondershare.com/virbo/article/2024/03/translate-twitter-video-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Another option that you have to translate videos on Twitter is using AI Video Translator. There are many software that have AI Video Translator features. But if you want to use those tools without installing anything, the next section will discuss how to do it online.
 
 ## **Part 4. How to Translate Twitter Video With AI Video Translator**
@@ -331,13 +325,6 @@ To translate Twitter videos using Virbo Video Translator, you can follow these s
 
 ![Log in to Wondershare Virbo Account](https://images.wondershare.com/virbo/article/2024/03/translate-twitter-video-6.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 3.** Open the Video Translate feature.
 
 ![Wondershare Virbo Interface](https://images.wondershare.com/virbo/article/2024/03/translate-twitter-video-7.jpeg)
@@ -357,13 +344,6 @@ Translating videos on Twitter is not just about overcoming language barriers. It
 While Twitter's built-in translation feature is limited, other tools exist. For example, you can use translation bot accounts or AI Video Translators. One of the best solutions is using the AI Video Translator tool by Wondershare Virbo. These tools are easy to use and help you connect with people worldwide.
 
 So, if you want your Twitter videos to reach a wider audience and make a more significant impact, try Virbo's Video Translator tool. It's simpler than you think, and it's worth it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Translate Instagram Videos for Global Engagement
 
@@ -433,6 +413,13 @@ First, upload the video file you want to translate. Next, select the original vi
 
 ![translate-instagram-video-6.jpeg](https://images.wondershare.com/virbo/article/2024/03/translate-instagram-video-6.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 5.** Click "Translate this video".Virbo AI will translate the audio and synchronize it with the video. The duration and complexity of the video may affect the processing time.
 
 Using Virbo’s Translation tool simplifies the process of translating Instagram videos. Connecting you to a wider audience and overcoming the language barriers. With Virbo's AI technology, connecting with a worldwide audience is simple and impactful.
@@ -456,19 +443,6 @@ Aim for a video resolution ranging between 360x360 and 1920x1920 pixels. This en
 4. **Upload videos without subtitles initially**
 
 When uploading your video, refrain from including subtitles initially. It helps to create a more precise and tailored translation and ensures that the text aligns with the video content.
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -537,13 +511,6 @@ Here are many scenarios where you can take advantage of Virbo:
 
 ![video use cases](https://images.wondershare.com/virbo/images2023/feature-video-translation/translator-img3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Build stronger customer loyalty**
 
 Engage Tamil-speaking customers by translating product tutorials and testimonials. You can also provide customer support videos in Tamil. It fosters stronger relationships and loyalty for your brand’s success.
@@ -605,13 +572,6 @@ Want to order authentic Bengali food but unsure how to check the menu? Or travel
 Whatever reason you have, apps for **voice translation from English to Bangla** make it all possible. Since there are plenty of options in the market, we know it's hard to choose which suits your needs. That's why we've created this guide. Here, you'll find the best translation apps for various user needs, plus tips for better results. Let's start.
 
 ![voice translation app illustration](https://images.wondershare.com/virbo/article/2024/03/voice-translation-english-to-bangla-01.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Best Apps for Voice Translation From English to Bangla
 
@@ -814,6 +774,19 @@ Otherwise, human translators and related equipment prove costly. That's why it's
 
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Video Translator Feature – A New Addition
 
 This feature of Virbo offers AI to translate video into selected voices along with subtitles. Users can upload their video, ranging from 10 seconds to 2 minutes. Moreover, it allows you to check the option of an AI generator for translated subtitles. Later, you can hit the keep background music option that will only change human voices.
@@ -942,6 +915,13 @@ HeyGen is originally an AI video creator but also offers a video translation fea
 
 ![heygen ai translate](https://images.wondershare.com/virbo/article/video-creation-with-ai-into-reality-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Key Features:**
 
 1. Despite uploading an MP4 video, you can make a video from a webcam in HeyGen.
@@ -1018,6 +998,13 @@ Click on the video translator and upload your desired video file. Select the lan
 
 ![upload your video to the Virbo](https://images.wondershare.com/virbo/guide/online-guide/ai-video-translator-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Add subtitles by importing your videos in the editing interface of Virbo. Write subtitles to the video and translate it into your desired language.
 
 ##### **Step 3: Export your video in a high-quality format**
@@ -1039,6 +1026,13 @@ As we all know, English is one of the most spoken languages. But not everyone sp
 If your viewers understand the Spanish language, but you are creating videos in other languages. It will create a communication barrier because your audience does not understand the language in the video. Language barriers can affect communication and lead to misunderstandings. Suppose you are posting video lectures on the website to offer courses. In this case, if you don't use a video language translator, it will misinterpret the viewers.
 
 ![Virbo allows export high-quality videos](https://images.wondershare.com/virbo/article/free-online-video-translator-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Failed to Reach a Large Audience
 
@@ -1076,17 +1070,24 @@ If you want to translate a video to English subtitles online for free or in othe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-leading-8-linux-programs-for-screenshots/"><u>[New] 2024 Approved The Leading 8 Linux Programs for Screenshots</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-masterful-picture-arrangement-10-leading-tools/"><u>[Updated] Masterful Picture Arrangement 10 Leading Tools</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-realme-gt-5-240w-frp-bypass-by-drfone-android/"><u>About Realme GT 5 (240W) FRP Bypass</u></a></li>
-<li><a href="https://program-issues.techidaily.com/destiny-2s-expansion-beyond-light-troubleshooting-pc-game-crashes/"><u>Destiny 2'S Expansion 'Beyond Light': Troubleshooting PC Game Crashes</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-10-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 10 Pro 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-navigating-copyright-concerns-in-screencasting-youtube-videos/"><u>In 2024, Navigating Copyright Concerns in Screencasting YouTube Videos</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-xiaomi-redmi-13c-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Xiaomi Redmi 13C FRP Bypass</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>New 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-translate-live-video-making-it-possible-with-the-best-tool/"><u>New 2024 Approved Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-10-chinese-video-to-english-translators/"><u>New Best 10 Chinese Video to English Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-10-free-video-translators-to-mitigate-translation-risks/"><u>New Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-subscribers-guide-to-effective-dialogue-on-youtube/"><u>[Updated] 2024 Approved The Subscriber's Guide to Effective Dialogue on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-leading-nintendo-switch-combat-arcade-games-max-156-for-2024/"><u>[Updated] Leading Nintendo Switch Combat Arcade Games (Max 156) for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-vuephoto-ai-powered-editing/"><u>2024 Approved VuePhoto AI-Powered Editing</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-10-chinese-video-to-english-translators/"><u>Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-video-language-changers-to-make-your-videos-accessible/"><u>Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-coping-with-unexpected-account-suspension-on-copyright-claims/"><u>In 2024, Coping with Unexpected Account Suspension on Copyright Claims</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-s24-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy S24 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 12 mini</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-live-video-making-it-possible-with-the-best-tool/"><u>In 2024, Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-driver-repair-resolving-sound-issues-in-dell-computers-with-windows-7/"><u>Mastering Driver Repair: Resolving Sound Issues in Dell Computers with Windows 7</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-top-9-choices-for-video-auto-translate/"><u>New In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-translate-video-from-japanese-to-english-online-for-free/"><u>New Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://win-forum.techidaily.com/social-media-platforms-facebook-twitter-instagram-youtube/"><u>Social Media Platforms: Facebook, Twitter, Instagram, YouTube</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-truth-busting-9-common-misconceptions-about-artificial-intelligence-chatbots/"><u>Unveiling the Truth: Busting 9 Common Misconceptions About Artificial Intelligence Chatbots</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-7-best-real-time-video-translation-apps/"><u>Updated 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/windows-11drive/"><u>Windows 11上将文件夹从Drive转移到其他存储设备: 四种不同的步骤</u></a></li>
 </ul></div>
 

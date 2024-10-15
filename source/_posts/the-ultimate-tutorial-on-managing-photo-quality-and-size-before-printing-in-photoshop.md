@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
-date: 2024-10-03T16:43:14.460Z
-updated: 2024-10-08T17:59:23.506Z
+date: 2024-10-08T18:50:21.138Z
+updated: 2024-10-14T21:44:48.842Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
@@ -58,13 +58,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -72,10 +65,16 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -115,10 +114,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -130,6 +129,13 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -144,10 +150,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -173,16 +179,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-budget-friendly-bundles-startup-channels-for-newcomers/"><u>[Updated] Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-is-an-m1-enabled-laptop-a-worthwhile-investment-for-editors/"><u>[Updated] Is an M1-Enabled Laptop a Worthwhile Investment for Editors?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/cutting-tactics-shrinking-vids-for-instagram-mac-edition/"><u>Cutting Tactics Shrinking Vids for Instagram, Mac Edition</u></a></li>
-<li><a href="https://app-tips.techidaily.com/discover-the-enhanced-functionality-in-windows-11s-most-recent-update-tech-news-zdnet/"><u>Discover the Enhanced Functionality in Windows 11'S Most Recent Update | Tech News - ZDNet</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-note-taking-with-obsidians-artistic-touch/"><u>Elevate Note-Taking with Obsidian's Artistic Touch</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nokia-c12-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nokia C12</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/most-popular-tweets-the-engagement-list-for-2024/"><u>Most Popular Tweets The Engagement List for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-tool-to-translate-youtube-video-to-arabic/"><u>New Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-9-choices-for-video-auto-translate/"><u>Updated In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-best-7-dslr-vlogging-cameras/"><u>[New] 2024 Approved Best 7 DSLR Vlogging Cameras</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-quintessential-selection-5-must-have-mac-snipers/"><u>[New] In 2024, The Quintessential Selection 5 Must-Have Mac Snipers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-step-by-step-guide-to-purchasing-youtube-royalties/"><u>[New] Your Step-by-Step Guide to Purchasing YouTube Royalties</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accelerate-your-valorant-setup-with-these-tips/"><u>Accelerate Your Valorant Setup with These Tips</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss/"><u>Best Video Translator App for PC You Cannot Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-easy-steps-to-translate-video-on-twitter/"><u>In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mirth-makers-zombie-fashionistas/"><u>In 2024, Mirth Makers Zombie Fashionistas</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>New 2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-combine-mov-files-for-free-5-excellent-options/"><u>Updated Combine MOV Files for Free 5 Excellent Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Updated In 2024, Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-stoppage-over-nvidia-device-issue-cleared/"><u>Windows Stoppage Over NVIDIA Device Issue Cleared</u></a></li>
 </ul></div>
 
