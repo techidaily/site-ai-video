@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Maximize Yandex Translate in Video Translation and Beyond
-date: 2024-10-08T01:26:41.055Z
-updated: 2024-10-14T19:33:37.325Z
+date: 2024-10-16T17:01:21.207Z
+updated: 2024-10-20T17:03:50.267Z
 tags: 
   - ai translate video
   - ai generate video
@@ -26,13 +26,6 @@ Technological advancements in the world of video translation have transformed ho
 The Yandex browser video translation comes with an in-built translator that shows words and phrases in the language being used in the browser interface. It also comes with additional features, including translating Yandex emoji and Yandex photo translate which improves user experience. These features recognize text in images, providing translation over the source text. This means that you only need to view a video and it will automatically generate subtitles in the language you are using with the browser.
 
 ![yandex browsers translation](https://images.wondershare.com/virbo/article/how-to-use-yandex-browsers-video-translation-feature-a-step-by-step-guide-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yandex browser translate video feature automatically detects the language of the loaded pages. It will then ask you if you want to translate it, and allow you to open the translation dialog window once you click the SmartBox. In only a few simple steps, you can translate the languages in any video, text, or image.
 
@@ -204,16 +197,16 @@ Since choosing the right tool is the first step to successful video translation,
 
 Welcome to our comprehensive guide on **video translator download**, your gateway to a diverse world of multimedia content. In an era where connecting with a global audience is paramount, the ability to break language barriers through video translation is a game-changer. Whether you're a content creator, language enthusiast, this guide will walk you through the essential factors to consider, step-by-step instructions for a seamless video translator download, and address common questions related to **translating English to Hindi videos**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: Step-by-step Instructions for Video Translator Downloading
 
 ![virbo video translator app](https://images.wondershare.com/virbo/article/video-translator-download-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now that we've explored the crucial factors to consider when venturing into video translation let's embark on a practical journey — downloading a video translator. Follow these step-by-step instructions to integrate this powerful tool into your content creation toolkit seamlessly. Additionally, we'll recommend two reputable video translator apps to guide you through the installation process.
 
@@ -264,6 +257,13 @@ In the intricate dance of video translation, accuracy takes center stage. When s
 ### 2\. Language Support
 
 The beauty of global content creation lies in its linguistic diversity. Opt for a video translator that transcends language boundaries—a true polyglot. Choosing a tool with broad language support empowers you to cater to the diverse linguistic preferences of your audience, creating an inclusive and accessible viewing experience. Your selected tool should be a gateway to a world where language is not a barrier but a bridge.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Subtitle Customization
 
@@ -350,6 +350,13 @@ Step 2 - Upload your video
 
 ![step guidance - using virbo to translate hindi - step 2](https://images.wondershare.com/virbo/article/kya-aap-video-call-kar-sakte-ho-in-english-translation-03.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can drag and drop a video on this window or just link your video the old-school way.
 
 Step 3 - Select your original (source) and translated languages
@@ -357,6 +364,13 @@ Step 3 - Select your original (source) and translated languages
 Next, you have to select your languages. If you are translating from Hindi to English, select Hindi as the original language and English as the Translated language, as you can see in the screenshot below.
 
 ![step guidance - using virbo to translate hindi - step 3 & 4](https://images.wondershare.com/virbo/article/kya-aap-video-call-kar-sakte-ho-in-english-translation-04.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4 - Translate your video
 
@@ -466,13 +480,6 @@ Nikse Subtitle Edit Oline is a free multi-subtitle translator. The free online p
 
 ![nikse subtitle edit online main window](https://images.wondershare.com/virbo/article/2024/03/multi-subtitles-translator-05.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Translation and synchronization**. You can translate subtitles into different languages. Use Google Translate, Yandex Translate, or other integrated tools to convert subtitle languages.
 - **Many output formats.** Save your subtitle files in various formats, including STL, XML, TXT, and more.
 
@@ -505,6 +512,13 @@ Nova AI is a trusted companion for automatic transcription and translation servi
 - **Extensive language support**. Translate subtitles between 75 different languages. Connect with diverse audiences worldwide.
 - **Convenient download options.** Access your translated text in TXT and SRT formats. Easily integrate them with your video content.
 - **Video editing and subtitle sync.** Use Nova AI’s video editing and subtitle sync features to fine-tune your content.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Subly – AI Subtitle Translator
 
@@ -581,6 +595,13 @@ Wondershare Virbo isn't limited to an AI video translation feature; it is a comp
 
 [Translate Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2. Step-by-Step Guide: Auto-Translating YouTube Videos Without Closed Captions
 
 Below is a simple step-by-step guide to translate Youtube video to English without cc. You can also use the same steps to translate your video into other languages like Chinese, German, Hindi, etc.
@@ -632,19 +653,6 @@ Sometimes, the translation doesn’t need to be accurate word for word. You can 
 ### 06Handle Idioms With Care
 
 AI tools don’t translate idiomatic expressions in a good way. They translate in a literal way, which destroys the entire message. So, you should be aware of idiomatic expressions and always ready to find their best equivalents in a target language.
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 07Hire A Human Editor
 
@@ -712,6 +720,13 @@ Translators often work with specific software and must adhere to technical guide
 
 Consistency in terminology, style, and tone across episodes or seasons is essential for a seamless viewing experience. Translators need to ensure that their translations remain coherent and consistent throughout the content.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ● **Adapting to Language Evolution**
 
 Languages evolve over time, and translators need to stay updated with contemporary usage and emerging expressions. This requires ongoing education awareness of linguistic trends to ensure translations remain relevant and accurate.
@@ -729,13 +744,6 @@ In this guide, we will demonstrate how Virbo's user-friendly interface and advan
 - **Step 1:** Simply open your browser and enter **Wondershare Virbo** into the search bar. If you don't have an account yet, you can create one by following the registration process. If you already have an existing account, log in using your credentials.
 
 ![wondershare virbo video translate](https://images.wondershare.com/virbo/article/2024/03/netflix-subtitle-translation-guide-03.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Get Started Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
@@ -765,6 +773,13 @@ In this guide, we will demonstrate how Virbo's user-friendly interface and advan
 
 ![translate the video button](https://images.wondershare.com/virbo/article/2024/03/netflix-subtitle-translation-guide-09.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 8:** Wait until the loading process is complete. Once done, review the subtitles to ensure they meet the standards. If necessary, you can edit them before clicking the **Save** button.
 
 ![subtitle save button](https://images.wondershare.com/virbo/article/2024/03/netflix-subtitle-translation-guide-10.jpg)
@@ -776,26 +791,6 @@ In this guide, we will demonstrate how Virbo's user-friendly interface and advan
 - **Step 10:** To access the translated video for download, simply click on the **Download video** button below.
 
 ![download video button](https://images.wondershare.com/virbo/article/2024/03/netflix-subtitle-translation-guide-12.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: What Are The Methods and Tips for Effective Netflix Subtitle Translation?
 
@@ -814,19 +809,6 @@ Cultural references and idiomatic expressions are integral parts of language and
 ### ● **Adapting Linguistic Nuances**
 
 Languages have their own unique nuances and subtleness that may not have direct equivalents in other languages. Translators must navigate these differences skillfully to preserve the richness and depth of the original dialogue. This involves understanding linguistic nuances such as wordplay, sarcasm, metaphor, and finding appropriate equivalents in the target language.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ● **Utilizing Translation Tools and Technology**
 
@@ -1001,22 +983,19 @@ In case you didn’t know, YouTube provides an auto translate for YouTube featur
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-premier-biking-game-showcase/"><u>[New] 2024 Approved Premier Biking Game Showcase</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>[New] Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024s-most-wanted-the-definitive-guide-to-high-performance-gaming-machines/"><u>2024'S Most Wanted: The Definitive Guide to High-Performance Gaming Machines</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725285888063-dvd/"><u>手ブレーカーガイド：DVD/動画からの高画質変換・設定方法</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-asus-ax600-rt-ax88u-wi-fi-6-router-features-and-performance-reviewed/"><u>Comprehensive Guide to the Asus AX6#00 RT-AX88U Wi-Fi 6 Router: Features and Performance Reviewed</u></a></li>
-<li><a href="https://common-error.techidaily.com/connect-your-microsoft-wireless-display-adapter-to-windows-11-without-a-hitch/"><u>Connect Your Microsoft Wireless Display Adapter to Windows 11 Without a Hitch!</u></a></li>
-<li><a href="https://ai-video.techidaily.com/exploring-hardware-insights-with-tom-your-go-to-resource/"><u>Exploring Hardware Insights with Tom - Your Go-To Resource</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra iPhone 13 Pro</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-your-video-stream-zoom-meets-fb-live/"><u>In 2024, Perfecting Your Video Stream Zoom Meets FB Live</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-technology-choices-insights-from-toms-hardware/"><u>Mastering Technology Choices - Insights From Tom's Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-your-electronic-needs-at-tomn-tech-haven-the-ultimate-resource/"><u>Mastering Your Electronic Needs at Tom'n Tech Haven - The Ultimate Resource</u></a></li>
-<li><a href="https://ai-video.techidaily.com/revolutionize-your-workflow-the-mighty-briefcase-with-up-to-amo-368tb-of-nvme-ssds-equipped-with-high-performance-components/"><u>Revolutionize Your Workflow: The Mighty Briefcase With Up to Amo 368TB of NVMe SSDs, Equipped with High-Performance Components</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ultimate-tutorial-on-managing-photo-quality-and-size-before-printing-in-photoshop/"><u>The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-rated-laptops-and-computers-sales/"><u>Top Rated Laptops & Computers Sales</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/watch-the-hottest-the-7-premier-platforms-featuring-latest-movie-clips/"><u>Watch the Hottest: The 7 Premier Platforms Featuring Latest Movie Clips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-soundtrack-anytime-anywhere-6-top-ranked-free-apps-to-download-youtube-music-for-2024/"><u>Your Soundtrack, Anytime, Anywhere 6 Top-Ranked Free Apps to Download Youtube Music for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-androids-top-game-lineup-for-disconnected-device-enthusiasts/"><u>[New] Android's Top Game Lineup for Disconnected Device Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-online-retrobing-navigating-youtubes-deleted-content-for-2024/"><u>[Updated] Online Retrobing Navigating YouTube’s Deleted Content for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-stream-mkv-videos-flawlessly-on-your-ps4-console-step-by-step-troubleshooting/"><u>How to Stream MKV Videos Flawlessly on Your PS4 Console - Step-by-Step Troubleshooting</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-any-hindi-video-into-english-with-ai/"><u>In 2024, Translate Any Hindi Video Into English With AI</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/iphone-photo-management-guide-for-albums-and-cloud-storage/"><u>IPhone Photo Management Guide for Albums & Cloud Storage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-release-wonderfox-video-watermark-v11-now-available/"><u>New Release: WonderFox Video Watermark v1.1 Now Available</u></a></li>
+<li><a href="https://techidaily.com/remove-motorola-lock-screen-without-passwordmotorola-by-drfone-android-unlock-android-unlock/"><u>Remove Motorola Lock Screen without Password(Motorola )</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-live-chat-with-woocommerce-leading-into-the-live-selling-world/"><u>Updated 2024 Approved Live Chat With WooCommerce Leading Into the Live Selling World</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated 2024 Approved Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-poco-c50-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Poco C50 Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 
