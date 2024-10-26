@@ -1,7 +1,7 @@
 ---
 title: Be Transparent and Detailed
-date: 2024-10-15T16:46:38.300Z
-updated: 2024-10-20T16:39:12.107Z
+date: 2024-10-19T20:12:34.138Z
+updated: 2024-10-25T16:39:20.514Z
 categories:
   - BestProducts
 description: This Article Describes Be Transparent and Detailed
@@ -39,15 +39,22 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 3.6
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -72,6 +79,13 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
@@ -92,13 +106,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -111,6 +118,13 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -118,13 +132,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -140,13 +147,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Audio Quality: Loud, but distorted**
@@ -154,13 +154,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -175,6 +168,13 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  Browsing through the interface, we did find it to be a bit laggy and choppy at times, which can be quite frustrating. Hopefully, this can be fixed down the line when new versions of Android TV make their way to the device.
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
 
@@ -231,24 +231,19 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-premier-video-communication-tools-the-top-10-for-ios-and-android/"><u>[New] In 2024, Premier Video Communication Tools The Top 10 for iOS & Android</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-quick-recording-tips-mastering-screen-captures-on-hp-systems/"><u>[Updated] In 2024, Quick Recording Tips Mastering Screen Captures on HP Systems</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-quirks-of-playback-solving-frozen-photobooth-videos/"><u>[Updated] The Quirks of Playback Solving Frozen Photobooth Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-beyond-the-screen-vrs-creative-applications/"><u>2024 Approved Beyond the Screen VR's Creative Applications</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-vip-racing-edition-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Infinix Note 30 VIP Racing Edition Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Vivo Y100i Power 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>New 2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>New 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-translate-live-video-making-it-possible-with-the-best-tool/"><u>New 2024 Approved Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-auto-translate-youtube-videos-into-different-languages/"><u>New In 2024, How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-srt-subtitle-translation-tools-and-techniques/"><u>New SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://review-topics.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-itel-a05s-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Itel A05s | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-raspberry-pi-enclosures-of-2024/"><u>Top-Rated Raspberry Pi Enclosures of 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>Updated 2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-9-choices-for-video-auto-translate/"><u>Updated Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-artisans-guide-to-professional-level-vr-captures/"><u>[New] The Artisan's Guide to Professional-Level VR Captures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ideo-editing-simplified-the-best-hacks-for-new-creators/"><u>[New] Video Editing Simplified The Best Hacks for New Creators</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-best-routes-to-collecting-visual-content-for-2024/"><u>[Updated] Best Routes to Collecting Visual Content for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-simplifying-cinematics-in-filmora-answering-the-core-questions-for-2024/"><u>[Updated] Simplifying Cinematics in Filmora Answering the Core Questions for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/i-migliori-11-programmi-gratuiti-per-ritaglio-video-nel-2024-la-tua-guida-completa/"><u>I Migliori 11 Programmi Gratuiti per Ritaglio Video Nel 2024: La Tua Guida Completa</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-14-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone 14 or iPad?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-vs-dailymention-identifying-key-variations/"><u>In 2024, YouTube Vs. DailyMention Identifying Key Variations</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/superior-practices-in-correcting-visual-faults/"><u>Superior Practices in Correcting Visual Faults</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>Updated In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Capturing Moments, Kids Laughter
-date: 2024-10-16T16:20:07.995Z
-updated: 2024-10-20T16:27:09.500Z
+date: 2024-10-21T11:09:13.177Z
+updated: 2024-10-26T00:59:12.781Z
 categories:
   - BestProducts
 description: This Article Describes Capturing Moments, Kids Laughter
@@ -39,6 +39,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
@@ -69,13 +76,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -83,13 +83,6 @@ Lifewire / Erika Rawes
  The eight antennas are housed inside of the two wings, so they’re not visible. The antennas are supposed to be ideally pre-positioned for you to get the best possible connection. However, because the eight individual antennas are housed within the wings, you can’t adjust them to your liking. The wings are on hinges though, so can fold down the wings to store the router, as the unit is somewhat large and bulky. It weighs three pounds, and it measures about a foot wide and almost eight inches in depth.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -100,10 +93,10 @@ Lifewire / Erika Rawes
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
@@ -116,14 +109,20 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network performance: Stellar**
 
@@ -150,10 +149,10 @@ Lifewire / Erika Rawes
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Nighthawk App**
@@ -177,6 +176,13 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,24 +222,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-elevating-gopro-videos-with-professional-filmmaking-techniques/"><u>[Updated] 2024 Approved Elevating Gopro Videos with Professional Filmmaking Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
-<li><a href="https://ai-video.techidaily.com/comprehensive-test-of-the-corsair-one-i500-the-ultimate-in-sleek-small-pc-reviews/"><u>Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comprehensive-tutorial-for-recording-teamspeak-conversations-on-pcs-and-macs/"><u>Comprehensive Tutorial for Recording TeamSpeak Conversations on PCs and Macs</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-hp-designjet-500-support-software-now-step-by-step-guide/"><u>Download HP DesignJet 500 Support Software Now: Step-by-Step Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-add-your-digital-signature-to-a-wpt-file-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Add Your Digital Signature to a .wpt file Document</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-pro-without-passcode-or-face-id-by-drfone-ios/"><u>How to Unlock iPhone 14 Pro without Passcode or Face ID</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/illustration-enthusiasts-dream-best-free-tools-for-mac/"><u>Illustration Enthusiasts' Dream - Best FREE Tools for Mac</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-release-of-magicard-rio-pro-driver-for-windows-users-download-and-install/"><u>Latest Release of Magicard Rio Pro Driver for Windows Users: Download & Install</u></a></li>
-<li><a href="https://ai-video.techidaily.com/predicting-the-unpredictable-chatgpt-or-horoscopes/"><u>Predicting the Unpredictable: ChatGPT or Horoscopes?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722990926316-resident-evil-village-and-pc-compatibility-fixing-game-crash-problems-once-and-for-all/"><u>Resident Evil Village and PC Compatibility: Fixing Game Crash Problems Once & For All!</u></a></li>
-<li><a href="https://ai-video.techidaily.com/revolutionizing-ai-computing-gigabytes-all-in-one-solutions-with-top-tier-workstations-amd-and-intel-graphics-speedy-ssds-reliable-psus-and-specialized-soft103/"><u>Revolutionizing AI Computing: Gigabyte's All-in-One Solutions with Top-Tier Workstations, AMD & Intel Graphics, Speedy SSDs, Reliable PSUs, and Specialized Software</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-xiaomi-redmi-12-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Xiaomi Redmi 12? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-best-pc-setups-for-serious-gamers-balancing-cost-with-performance/"><u>The Best PC Setups for Serious Gamers : Balancing Cost with Performance</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unlocking-insights-with-toms-hardware-your-source-for-cutting-edge-tools/"><u>Unlocking Insights with Tom's Hardware: Your Source for Cutting-Edge Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unveiling-the-asus-nuc-14-ultra9-cpu-power-meets-top-tier-gaming-performance-with-rtx-4070-gpu/"><u>Unveiling the Asus NUC 14 — Ultra9 CPU Power Meets Top-Tier Gaming Performance with RTX 4070 GPU</u></a></li>
-<li><a href="https://win-able.techidaily.com/why-cant-i-launch-origin-comprehensive-solutions-for-windows-1011-playstation-gamers/"><u>Why Can't I Launch Origin? Comprehensive Solutions for Windows 10/11 PlayStation Gamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-add-border-to-instagram-video-3-ways/"><u>[New] 2024 Approved How to Add Border to Instagram Video? [3 Ways]</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-how-to-record-desktop-on-windows-8-effortlessly/"><u>[New] 2024 Approved How To Record Desktop on Windows 8 Effortlessly</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-essential-visual-captures-on-apple-systems-limit-156-characters-for-2024/"><u>[New] Essential Visual Captures on Apple Systems (Limit 156 Characters) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-high-definition-horizons-the-intricacies-of-dell-p2715q-screening/"><u>2024 Approved High-Definition Horizons The Intricacies of Dell P2715Q Screening</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-insider-look-at-ios-video-recording-tools/"><u>2024 Approved The Insider Look at IO's Video Recording Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effiziente-losungen-fur-die-umwandlung-von-mov-in-mp4-auf-macos-schnell-einfach-und-gratis/"><u>Effiziente Lösungen Für Die Umwandlung Von MOV in MP4 Auf macOS - Schnell, Einfach Und Gratis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-elevate-video-calls-browse-through-our-top-5-hd-webcams-and-mics/"><u>In 2024, Elevate Video Calls - Browse Through Our Top 5 HD Webcams & Mics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-funny-faces-our-simple-meme-guide/"><u>In 2024, Free Funny Faces - Our Simple Meme Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>New 2024 Approved How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New 2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New 2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-9-choices-for-video-auto-translate/"><u>New 2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-non-recognizing-usb-devices-on-w78/"><u>Troubleshooting Non-Recognizing USB Devices on W7/8</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>Updated An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-9-best-french-video-translators-online-and-download-options/"><u>Updated In 2024, 9 Best French Video Translators Online and Download Options</u></a></li>
 </ul></div>
 

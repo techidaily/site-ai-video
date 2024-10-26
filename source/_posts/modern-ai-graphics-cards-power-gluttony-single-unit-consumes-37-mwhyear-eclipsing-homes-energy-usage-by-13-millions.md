@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-10-13T16:57:53.776Z
-updated: 2024-10-20T16:04:11.334Z
+date: 2024-10-19T08:56:28.339Z
+updated: 2024-10-25T19:09:17.942Z
 tags:
   - desktop
 categories:
@@ -37,10 +37,10 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,22 +66,21 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-youtube-success-through-strategic-studio-use/"><u>[Updated] Navigating YouTube Success Through Strategic Studio Use</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-newbies-guide-to-av1-codec/"><u>[Updated] The Newbie's Guide to AV1 Codec</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-professionals-picks-smoothest-drone-gimbals/"><u>2024 Approved Professional's Picks Smoothest Drone Gimbals</u></a></li>
-<li><a href="https://win-dash.techidaily.com/amd-radeon-pro-w5700-drivers-download-for-windows-11-10-and-7/"><u>AMD Radeon Pro W5700 Drivers: Download for Windows 11, 10 & 7</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-language-changers-to-make-your-videos-accessible/"><u>Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-xiaomi-redmi-note-12-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Xiaomi Redmi Note 12 Pro 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/expanding-creative-horizons-with-custom-fonts-in-after-effects-for-2024/"><u>Expanding Creative Horizons with Custom Fonts in After Effects for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/get-clear-shots-again-essential-fixes-for-non-responsive-iphone-camera-focus/"><u>Get Clear Shots Again: Essential Fixes for Non-Responsive iPhone Camera Focus</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your Apple iPhone 6 Plus</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-translate-live-video-making-it-possible-with-the-best-tool/"><u>In 2024, Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/momentum-builds-with-windows-11s-upcoming-feature-unveil/"><u>Momentum Builds with Windows 11’S Upcoming Feature Unveil</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-translate-video-from-japanese-to-english-online-for-free/"><u>New Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-7-best-real-time-video-translation-apps/"><u>Updated 7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-selfies-learn-the-art-of-stories-zooming/"><u>[New] 2024 Approved Instagram Selfies Learn the Art of Stories Zooming</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-maximizing-buzz-making-hype-on-twitter-videos/"><u>[New] 2024 Approved Maximizing Buzz Making Hype on Twitter Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-crafting-an-elite-home-computer-for-professional-4k-editing/"><u>[New] Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-youtubes-cc-policy-for-aspiring-creators/"><u>[Updated] Unveiling YouTube's CC Policy for Aspiring Creators</u></a></li>
+<li><a href="https://windows11.techidaily.com/enlighten-your-way-to-printer-success-on-windows-11/"><u>Enlighten Your Way to Printer Success on Windows 11</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/free-downloads-of-premium-ulozto-content-secrets-to-speed-and-full-hd-retrievals-unveiled/"><u>Free Downloads of Premium Ulozto Content - Secrets to Speed and Full HD Retrievals Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 2024 Approved 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>New 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-translate-any-hindi-video-into-english-with-ai/"><u>New 2024 Approved Translate Any Hindi Video Into English With AI</u></a></li>
+<li><a href="https://extra-support.techidaily.com/open-srt-soundtrack-on-windowsmacos-for-2024/"><u>Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-academic-savings-a-comprehensive-guide-to-dells-student-price-cuts/"><u>Unlocking Academic Savings: A Comprehensive Guide to Dell's Student Price Cuts</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-10-free-video-translators-to-mitigate-translation-risks/"><u>Updated 2024 Approved Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>Updated 2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-9-choices-for-video-auto-translate/"><u>Updated Top 9 Choices for Video Auto Translate</u></a></li>
 </ul></div>
 
