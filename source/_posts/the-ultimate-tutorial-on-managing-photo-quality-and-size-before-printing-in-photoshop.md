@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
-date: 2024-10-19T16:21:28.211Z
-updated: 2024-10-25T18:15:35.925Z
+date: 2024-10-31T03:52:19.873Z
+updated: 2024-11-01T01:13:02.206Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
@@ -41,10 +41,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -65,6 +65,13 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -72,10 +79,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -85,6 +92,19 @@ Lifewire / Kelsey Simon
  I did continue forward, even though I was already disinterested, hoping the game would become more gripping. After the memory room, you’ll wake to another platform where a being tells you you’ve suffered a great injury and they are in your mind. He tries to explain who you are but before he gets too far, you’ll be attacked by something called the Sorrow. Eventually, you’ll wake in the real world, enter the game’s main city, and be able to talk to the wealth of characters living there. You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Dialogue prompts and effort**
 
@@ -106,13 +126,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -130,13 +143,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -173,22 +179,15 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-seamless-integration-instagram-meets-tiktok/"><u>[New] 2024 Approved Seamless Integration Instagram Meets TikTok</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-transforming-footage-editing-videos-seamlessly-on-windows-11-and-storyremix/"><u>[New] Transforming Footage Editing Videos Seamlessly on Windows 11 and StoryRemix</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-spectrum-of-perfection-creating-stunning-hdrs-in-lightroom-for-2024/"><u>[Updated] The Spectrum of Perfection Creating Stunning HDRs in Lightroom for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-guide-to-negative-time-videos-on-instagram/"><u>2024 Approved The Ultimate Guide to Negative-Time Videos on Instagram</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bypassing-obstacles-a-guide-to-fixing-chatgpt-errors/"><u>Bypassing Obstacles: A Guide to Fixing ChatGPT Errors</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/can-expensive-advanced-ai-cue-sheets-justify-their-cost-through-performance/"><u>Can Expensive Advanced AI Cue Sheets Justify Their Cost Through Performance?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/exposed-the-hazards-of-fake-follower-purchases-on-youtube-for-2024/"><u>Exposed The Hazards of Fake Follower Purchases on YouTube for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-google-pixel-fold-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Google Pixel Fold to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>New 2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versain-2024/"><u>New How to Translate Audio/Video Content From Spanish to English and Vice Versa,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-instagram-videos-for-global-engagement/"><u>New How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>New Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated 2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-accelerate-yt-growth-strategies-for-1kplus-subscribers/"><u>[New] In 2024, Accelerate YT Growth Strategies for 1K+ Subscribers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-premier-fb-viewing-sites-ranked-1-10/"><u>[New] Premier FB Viewing Sites Ranked #1-10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-rapidrun-framefrozen-capture-for-2024/"><u>[New] RapidRun FrameFrozen Capture for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/5-best-apps-for-voice-translation-from-english-to-bangla/"><u>5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/claudio-vs-gpt-deciding-your-daily-assistant/"><u>Claudio Vs. GPT: Deciding Your Daily Assistant</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pro-filmmakers-guide-to-speedy-shot-techniques/"><u>In 2024, Pro Filmmaker's Guide to Speedy Shot Techniques</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-maximize-yandex-translate-in-video-translation-and-beyond/"><u>New Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://techidaily.com/unlock-a-disable-iphone-x-using-find-my-iphone-by-drfone-ios-unlock-ios-unlock/"><u>Unlock a disable iPhone X using find my iphone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
 </ul></div>
 

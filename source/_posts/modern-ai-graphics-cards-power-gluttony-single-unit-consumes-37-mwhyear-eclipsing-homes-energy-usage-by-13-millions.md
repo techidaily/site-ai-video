@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-10-19T08:56:28.339Z
-updated: 2024-10-25T19:09:17.942Z
+date: 2024-10-30T23:57:32.580Z
+updated: 2024-10-31T18:51:59.118Z
 tags:
   - desktop
 categories:
@@ -37,10 +37,16 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,21 +72,16 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-selfies-learn-the-art-of-stories-zooming/"><u>[New] 2024 Approved Instagram Selfies Learn the Art of Stories Zooming</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-maximizing-buzz-making-hype-on-twitter-videos/"><u>[New] 2024 Approved Maximizing Buzz Making Hype on Twitter Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-crafting-an-elite-home-computer-for-professional-4k-editing/"><u>[New] Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-youtubes-cc-policy-for-aspiring-creators/"><u>[Updated] Unveiling YouTube's CC Policy for Aspiring Creators</u></a></li>
-<li><a href="https://windows11.techidaily.com/enlighten-your-way-to-printer-success-on-windows-11/"><u>Enlighten Your Way to Printer Success on Windows 11</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/free-downloads-of-premium-ulozto-content-secrets-to-speed-and-full-hd-retrievals-unveiled/"><u>Free Downloads of Premium Ulozto Content - Secrets to Speed and Full HD Retrievals Unveiled</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 2024 Approved 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>New 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-translate-any-hindi-video-into-english-with-ai/"><u>New 2024 Approved Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://extra-support.techidaily.com/open-srt-soundtrack-on-windowsmacos-for-2024/"><u>Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlocking-academic-savings-a-comprehensive-guide-to-dells-student-price-cuts/"><u>Unlocking Academic Savings: A Comprehensive Guide to Dell's Student Price Cuts</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-10-free-video-translators-to-mitigate-translation-risks/"><u>Updated 2024 Approved Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>Updated 2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-9-choices-for-video-auto-translate/"><u>Updated Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-hd-action-recorder-brands-under-100/"><u>[Updated] Best HD Action Recorder Brands Under $100</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/exploring-the-features-and-performance-in-our-in-depth-review-of-pitakas-magez-slider-for-apple-products/"><u>Exploring the Features and Performance in Our In-Depth Review of Pitaka's MagEZ Slider for Apple Products</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-mp4mpeg-audio-extraction-tool/"><u>In 2024, MP4/MPEG Audio Extraction Tool</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-a-brief-review-of-capcut-translate-with-alternative/"><u>New A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>New In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-unlocking-global-audiences-top-video-language-converters/"><u>New Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://fox-that.techidaily.com/rescue-your-disappeared-iphone-with-these-tips-on-leveraging-find-my-services/"><u>Rescue Your Disappeared iPhone with These Tips on Leveraging Find My Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/showdown-of-titans-features-and-performance-between-iphone-15-plus-and-pro-max/"><u>Showdown of Titans: Features and Performance Between iPhone 15 Plus and Pro Max</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated In 2024, A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://article-tips.techidaily.com/virtual-frontiers-today-for-2024/"><u>Virtual Frontiers Today for 2024</u></a></li>
 </ul></div>
 

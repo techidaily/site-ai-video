@@ -1,7 +1,7 @@
 ---
 title: Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool
-date: 2024-10-23T09:04:39.879Z
-updated: 2024-10-25T16:27:39.694Z
+date: 2024-10-29T00:24:33.358Z
+updated: 2024-10-31T19:03:28.740Z
 tags:
   - chatgpt
   - open-ai
@@ -34,10 +34,10 @@ False news can be categorized into three types:
  How will the law address the propagation of fake news through generative AI? Who will be held responsible for spreading false information—the users, developers, or the tools themselves?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4 Ways Generative AI Can Be Used to Spread Disinformation
@@ -45,10 +45,16 @@ False news can be categorized into three types:
  To stay safe online, everyone needs to understand the risks of generative AI in spreading disinformation, as it comes in many different forms. Here are a few ways it can be used to manipulate people.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Generating Fake Content Online
@@ -60,6 +66,13 @@ False news can be categorized into three types:
 Here's the fictitious article that ChatGPT came up with:
 
 ![ChatGPT created a fictitious news article about corruption charges against Joe Biden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/chatgpt-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Surprisingly, the output was highly persuasive. It included the names and statements of authoritative figures to make the article more convincing. This shows how anyone can use such tools to generate false news and easily spread it online.
 
@@ -73,13 +86,6 @@ Here's the fictitious article that ChatGPT came up with:
 * **Targeted personalization** : Chatbots have access to vast amounts of data that they can gather to create personalized profiles. This enables them to customize content based on your preferences. Through targeted personalization, AI can persuade individuals or further strengthen their opinions.
 
  These examples all illustrate how chatbots can be utilized to mislead people.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Creating AI DeepFakes
 
@@ -98,10 +104,10 @@ Here's the fictitious article that ChatGPT came up with:
  Scammers may use deepfake voices to impersonate your loved ones and call you, pretending to be in distress. With synthetic audio that sounds convincing, they could urge you to send money urgently, leading you to become a victim of their scams. An incident reported by[The Washington Post](https://www.washingtonpost.com/technology/2023/03/05/ai-voice-scam/) in March 2023 exemplifies this issue: scammers used deepfake voices to convince people that their grandsons were in jail and needed money...
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Spot AI-Spread Disinformation
@@ -136,18 +142,24 @@ Here's the fictitious article that ChatGPT came up with:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-navigating-snapchats-hidden-story-arena/"><u>[Updated] 2024 Approved Navigating Snapchat's Hidden Story Arena</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-live-stream-to-youtube-with-wirecast/"><u>2024 Approved How to Live Stream to Youtube with Wirecast?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-tool-to-translate-youtube-video-to-arabic/"><u>Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-vivo-g2-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Vivo G2 FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/repossessing-corrupted-or-erased-information-a-3-step-guide-on-your-external-hard-disk/"><u>Repossessing Corrupted or Erased Information: A 3-Step Guide on Your External Hard Disk</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/screen-recorder-pros-free-software-on-both-windows-and-macos/"><u>Screen Recorder Pros Free Software on Both Windows & MacOS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/strategies-to-avoid-pitfalls-in-designing-youtube-thumbnails-for-2024/"><u>Strategies to Avoid Pitfalls in Designing YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/swf-mp3-movavi/"><u>SWF 파일에서 MP3로 바꾸기: 온라인 가용성과 동시에 – Movavi 소개</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/uncomplicated-blueprint-for-crafting-successful-ads-online-for-2024/"><u>Uncomplicated Blueprint for Crafting Successful Ads Online for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-expert-techniques-for-saving-vimeo-videos-as-high-quality-mp4s/"><u>[New] 2024 Approved Expert Techniques for Saving Vimeo Videos as High-Quality MP4s</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-rotating-iphone-photos-for-perfect-angles-for-2024/"><u>[New] Rotating iPhone Photos for Perfect Angles for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-color-grading-techniques-unraveling-the-mystery-of-luts/"><u>[Updated] 2024 Approved Color Grading Techniques Unraveling the Mystery of LUTs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-enhance-discord-conversations-a-recorders-insight/"><u>[Updated] Enhance Discord Conversations A Recorder's Insight</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-best-video-language-changers-to-make-your-videos-accessible/"><u>2024 Approved Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-techniques-to-resolve-unrecognized-usb-device-issues-with-windows-10s-port-reset-failure/"><u>Effective Techniques to Resolve Unrecognized USB Device Issues with Windows 10'S Port Reset Failure</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-fodt-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signature - For .fodt file</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-vivo-t2-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Vivo T2 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-use-korean-to-english-video-translators-for-creators/"><u>How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-infinix-note-30-vip-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Infinix Note 30 VIP ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>New 2024 Approved Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>New 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-fix-for-windows-10-error-code-80240020-during-installation/"><u>Step-by-Step Fix for Windows 10 Error Code 80240020 During Installation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
 </ul></div>
 
