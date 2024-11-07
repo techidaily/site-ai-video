@@ -1,7 +1,7 @@
 ---
 title: "Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents"
-date: 2024-10-29T18:23:43.579Z
-updated: 2024-11-01T03:19:55.838Z
+date: 2024-11-05T00:15:47.270Z
+updated: 2024-11-06T22:37:47.567Z
 categories:
   - BestProducts
 description: "This Article Describes Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents"
@@ -37,29 +37,9 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -91,13 +71,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  It has two little flip-up stopper nubs at the bottom to hold your laptop in place, and they can be gradually adjusted to avoid having them stick up and press into your wrists while typing. Meanwhile, a pair of feet on the bottom of the pad flip out to elevate your laptop about an inch upward to improve air circulation.
@@ -108,18 +81,24 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -143,19 +122,33 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
@@ -173,6 +166,13 @@ Lifewire / Andrew Hayward
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,22 +202,14 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-expanding-reach-fb-live-on-broadcast-networks-for-2024/"><u>[New] Expanding Reach FB Live on Broadcast Networks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-assemble-visual-media-for-queue-upgrade-for-2024/"><u>[Updated] Assemble Visual Media for Queue Upgrade for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-adopting-the-way-of-google-meet-webinars/"><u>2024 Approved Adopting the Way of Google Meet Webinars</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-netflix-subtitle-translation-methods-comprehensive-guide/"><u>2024 Approved Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/aif-wmv/"><u>AIF向け無料動画変換 - WMVファイルも簡単移行</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apple-launches-a-bold-challenge-against-leading-web-browsers-with-startling-commercial-campaign-witness-here-zdnet/"><u>Apple Launches a Bold Challenge Against Leading Web Browsers with Startling Commercial Campaign – Witness Here | ZDNet</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/crafting-compelling-stories-the-art-of-instagram-video-editing/"><u>Crafting Compelling Stories The Art of Instagram Video Editing</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>New 2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New In 2024, Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>New Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210169466-9780834843370-the-diamond-approach/"><u>The Diamond Approach | Free Book</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-easy-way-to-set-up-any-logitech-wireless-keyboard/"><u>The Easy Way to Set Up Any Logitech Wireless Keyboard</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-10-chinese-video-to-english-translators/"><u>Updated 2024 Approved Best 10 Chinese Video to English Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Updated Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/vs-gopro-hero-session-and-polaroid-cube-top-pick-for-filmmakers-for-2024/"><u>Vs. GoPro Hero Session & Polaroid Cube Top Pick for Filmmakers for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-advances-in-photography-with-lut-technology/"><u>[Updated] Advances in Photography with LUT Technology</u></a></li>
+<li><a href="https://driver-error.techidaily.com/disabling-permanent-bluetooth-issue-on-windows-10/"><u>Disabling Permanent Bluetooth Issue on Windows 10</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-gameloop-crashes-in-windows-11-and-windows-10-complete-guide/"><u>How to Fix GameLoop Crashes in Windows 11 & Windows 10 – Complete Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-auto-translate-youtube-videos-into-different-languages/"><u>In 2024, How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-p55-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel P55 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-easy-steps-to-translate-video-on-twitter/"><u>New In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-translate-live-video-making-it-possible-with-the-best-tool/"><u>New In 2024, Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/280255-9781416545354-sunshines/"><u>SunShines | Free Book</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>Updated 2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
 </ul></div>
 
