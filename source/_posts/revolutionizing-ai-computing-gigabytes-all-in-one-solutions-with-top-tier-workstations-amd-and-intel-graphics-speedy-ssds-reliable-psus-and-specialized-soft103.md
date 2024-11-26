@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing AI Computing: Gigabyte's All-in-One Solutions with Top-Tier Workstations, AMD & Intel Graphics, Speedy SSDs, Reliable PSUs, and Specialized Software"
-date: 2024-11-09T20:40:36.333Z
-updated: 2024-11-16T18:42:06.220Z
+date: 2024-11-19T20:44:54.096Z
+updated: 2024-11-26T17:38:45.960Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -45,6 +49,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -52,6 +60,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -76,25 +88,24 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ecoming-a-youtube-guru-essential-production-know-how/"><u>[New] Becoming a YouTube Guru Essential Production Know-How</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-turning-tails-into-heads-android-video-editing/"><u>[New] In 2024, Turning Tails Into Heads Android Video Editing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-stream-talent-twitter-live-broadcast-basics/"><u>[New] Stream Talent Twitter Live Broadcast Basics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-academic-anchors-identifying-top-10-lecture-preservation-tools/"><u>[Updated] 2024 Approved Academic Anchors Identifying Top 10 Lecture Preservation Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-how-to-capture-your-skype-sessions-on-mac-and-windows/"><u>[Updated] 2024 Approved How to Capture Your Skype Sessions on Mac and Windows</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-advice-on-iphone-ringtones-and-customization/"><u>[Updated] Expert Advice on iPhone Ringtones & Customization</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlocking-premiere-pros-lut-potential/"><u>[Updated] In 2024, Unlocking Premiere Pro's LUT Potential</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-leading-open-source-20-best-pubg-images/"><u>[Updated] Leading Open Source 20 Best PUBG Images</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-translate-live-video-making-it-possible-with-the-best-tool/"><u>2024 Approved Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versain-2024/"><u>Updated How to Translate Audio/Video Content From Spanish to English and Vice Versa,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Updated In 2024, Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated In 2024, How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-start-broadcasting-now-instagram-live-guide/"><u>[Updated] Start Broadcasting Now Instagram Live Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-coping-with-youtube-copyright-claims-a-step-by-step-guide/"><u>2024 Approved Coping with YouTube Copyright Claims A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-gamegazers-graphic-guide/"><u>2024 Approved GameGazer's Graphic Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>2024 Approved Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-honor-magic-6-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-asus-rog-phone-8-pro-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Asus ROG Phone 8 Pro Phone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-best-tool-to-translate-youtube-video-to-arabic/"><u>New 2024 Approved Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-best-tool-to-translate-youtube-video-to-arabic/"><u>New Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-best-video-language-changers-to-make-your-videos-accessible/"><u>New Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New In 2024, Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-samsung-galaxy-s23-fe-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Samsung Galaxy S23 FE ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/est-free-cloud-based-video-editing-tools/"><u>The Best Free, Cloud-Based Video Editing Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-mobvoi-ticwatch-pro-3-review-how-its-integrated-gps-system-and-battery-efficient-double-screens-stand-out/"><u>The Ultimate Mobvoi TicWatch Pro 3 Review: How Its Integrated GPS System and Battery-Efficient Double Screens Stand Out</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-easy-steps-to-translate-video-on-twitter/"><u>Updated In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-9-choices-for-video-auto-translate/"><u>Updated In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Nokia C22 | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

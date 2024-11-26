@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2024-11-10T05:17:21.542Z
-updated: 2024-11-17T00:36:52.325Z
+date: 2024-11-21T16:28:51.290Z
+updated: 2024-11-26T18:08:39.524Z
 tags:
   - desktop
 categories:
@@ -47,6 +47,10 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -70,31 +74,19 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-leading-speech-gatherers-in-educational-environments/"><u>[New] In 2024, Leading Speech Gatherers in Educational Environments</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-premium-unmanned-aerial-vehicles-for-gopro-recording/"><u>[New] Premium Unmanned Aerial Vehicles for GoPro Recording</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-top-7-best-voice-changer-recorder-apps-for-2024/"><u>[New] Top 7 Best Voice Changer Recorder Apps for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-step-by-step-guide-to-efficient-telegram-web-use/"><u>[Updated] In 2024, Step-By-Step Guide to Efficient Telegram Web Use</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-motorola-edge-2023-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Motorola Edge 2023.</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/gopro-hero5-session-review/"><u>GoPro Hero5 Session Review</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-motorola-edgeplus-2023-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Motorola Edge+ (2023) online without jailbreak</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-asus-rog-phone-7-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Asus ROG Phone 7 to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-unlocking-global-audiences-top-video-language-converters/"><u>In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/maximize-yandex-translate-in-video-translation-and-beyond/"><u>Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>New 2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>New 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-xiaomi-14-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Xiaomi 14? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/reinstate-lost-files-via-winrecovery-center/"><u>Reinstate Lost Files via WinRecovery Center</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-tech-insights-exploring-the-latest-in-hardware/"><u>Tom's Tech Insights: Exploring the Latest in Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-brief-review-of-capcut-translate-with-alternative/"><u>Updated A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-what-you-liked-no-more-unveiling-yt-deletions-online-for-2024/"><u>Watch What You Liked No More Unveiling YT Deletions Online for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-laughoutloud-maker-get-funny-faces-on-the-web/"><u>[New] LaughOutLoud Maker Get Funny Faces on the Web</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-initial-glimpse-at-vectors-classifying-and-choosing-right-tech/"><u>[Updated] 2024 Approved Initial Glimpse at Vectors Classifying and Choosing Right Tech</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-best-practices-for-filming-screen-captures/"><u>[Updated] Best Practices for Filming Screen Captures</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-live-streaming-360-video-to-youtube/"><u>[Updated] In 2024, How to Live Streaming 360 Video to Youtube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-future-awaits-equipping-yourself-for-metaverse-life-top-7/"><u>2024 Approved The Future Awaits Equipping Yourself for Metaverse Life (Top 7)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/demystifying-income-for-t-series-on-youtube-for-2024/"><u>Demystifying Income for T-Series on YouTube for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/efficient-measures-for-revising-flawed-videos/"><u>Efficient Measures for Revising Flawed Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/essential-solutions-to-overcome-severe-driver-problems-in-videos-dxgkrnl/"><u>Essential Solutions to Overcome Severe Driver Problems in Videos (Dxgkrnl)</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-translate-instagram-videos-for-global-engagement/"><u>How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>New 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-a-complete-guide-of-top-7-video-language-translators/"><u>New A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>New How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-7-best-real-time-video-translation-apps/"><u>Updated 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

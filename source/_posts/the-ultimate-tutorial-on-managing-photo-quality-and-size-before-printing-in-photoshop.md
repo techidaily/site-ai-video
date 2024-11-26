@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
-date: 2024-11-14T00:47:21.337Z
-updated: 2024-11-17T07:29:37.166Z
+date: 2024-11-24T18:31:50.237Z
+updated: 2024-11-26T19:22:59.927Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
@@ -36,6 +36,10 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -59,10 +63,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
@@ -70,6 +71,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -79,18 +84,15 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -125,16 +127,7 @@ Lifewire / Kelsey Simon
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
@@ -148,13 +141,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,17 +165,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-efficient-obs-usage-live-skype-capture-tips/"><u>[New] In 2024, Efficient OBS Usage Live Skype Capture Tips</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/common-causes-and-solutions-for-mistyping-on-your-keyboard/"><u>Common Causes and Solutions for Mistyping on Your Keyboard</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-youtube-videos-to-english-subtitles/"><u>How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-p40-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel P40 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/mpow-bluetooth-hardware-support-update-your-windows-1087-drivers-now/"><u>MPOW Bluetooth Hardware Support: Update Your Windows (10/8/7) Drivers Now</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>New In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/rhythm-and-reel-adding-music-to-ig-feeds/"><u>Rhythm and Reel Adding Music to IG Feeds</u></a></li>
-<li><a href="https://games-able.techidaily.com/right-oled-monitor-decision-guide/"><u>Right OLED Monitor Decision Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/unveiling-win11s-five-privacy-snooping-techniques/"><u>Unveiling Win11's Five Privacy Snooping Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-complete-guide-of-top-7-video-language-translators/"><u>Updated A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-auto-translate-youtube-videos-into-different-languages/"><u>Updated How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-numbers-comprehensive-guide-to-count-views-clicks-and-cash-in-youtube/"><u>[New] 2024 Approved Unveiling the Numbers Comprehensive Guide to Count Views, Clicks, and Cash in YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-choosing-ultrawide-vs-uhd-4k-displays-a-comprehensive-guide/"><u>[New] Choosing UltraWide vs UHD 4K Displays A Comprehensive Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-elevate-your-online-engagements-the-ultimate-guide-to-slack-and-filmora-for-2024/"><u>[Updated] Elevate Your Online Engagements The Ultimate Guide to Slack & Filmora for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024s-most-wanted-the-definitive-guide-to-high-performance-gaming-machines/"><u>2024'S Most Wanted: The Definitive Guide to High-Performance Gaming Machines</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/guide-to-premium-free-mobile-video-calls-ios-and-android-edition/"><u>Guide to Premium-Free Mobile Video Calls - iOS & Android Edition</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-se-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone SE Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-buy-on-cloud-storage-pricing-a-comparative-study/"><u>In 2024, Best Buy on Cloud Storage Pricing A Comparative Study</u></a></li>
+<li><a href="https://ai-video.techidaily.com/mastering-technology-choices-insights-from-toms-hardware/"><u>Mastering Technology Choices - Insights From Tom's Hardware</u></a></li>
+<li><a href="https://ai-video.techidaily.com/mastering-your-electronic-needs-at-tomn-tech-haven-the-ultimate-resource/"><u>Mastering Your Electronic Needs at Tom'n Tech Haven - The Ultimate Resource</u></a></li>
+<li><a href="https://ai-video.techidaily.com/revolutionize-your-workflow-the-mighty-briefcase-with-up-to-amo-368tb-of-nvme-ssds-equipped-with-high-performance-components/"><u>Revolutionize Your Workflow: The Mighty Briefcase With Up to Amo 368TB of NVMe SSDs, Equipped with High-Performance Components</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sound-signatures-curating-the-best-music-for-podcast-introductions-for-2024/"><u>Sound Signatures Curating the Best Music for Podcast Introductions for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/telechargement-illimite-de-la-version-gratuite-du-ripper-dvd-sans-filigrane/"><u>Téléchargement Illimité De La Version Gratuite Du Ripper DVD Sans Filigrane</u></a></li>
+<li><a href="https://windows11.techidaily.com/unveiling-the-power-of-windows-nettools/"><u>Unveiling the Power of Windows NetTools</u></a></li>
 </ul></div>
 

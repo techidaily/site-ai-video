@@ -1,7 +1,7 @@
 ---
 title: "Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents"
-date: 2024-11-11T22:29:56.745Z
-updated: 2024-11-17T02:57:03.417Z
+date: 2024-11-21T18:35:26.949Z
+updated: 2024-11-26T19:17:33.279Z
 categories:
   - BestProducts
 description: "This Article Describes Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -36,6 +40,10 @@ Lifewire / Andrew Hayward
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
@@ -64,10 +72,7 @@ Lifewire / Andrew Hayward
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design: Light and a little flimsy
@@ -88,13 +93,6 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
@@ -102,13 +100,6 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -123,13 +114,6 @@ Lifewire / Andrew Hayward
  In Dirt 5’s built-in benchmark test, the Razer Blade 15 hit 184 degrees internally and 117° externally, and those figures dropped to 175 degrees internally and 100 degrees externally with the cooling pad. There was no significant performance difference in the Dirt 5 benchmark when using the cooling pad: The average FPS mark was within one frame with or without the pad in use.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -156,10 +140,7 @@ Lifewire / Andrew Hayward
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -167,6 +148,10 @@ Lifewire / Andrew Hayward
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -196,18 +181,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/treamlined-success-top-10-youtube-channels-to-start-your-biz-today/"><u>[New] Streamlined Success Top 10 YouTube Channels to Start Your Biz Today</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-a-guide-to-understanding-and-joining-a-youtube-media-company/"><u>[Updated] A Guide to Understanding and Joining a YouTube Media Company</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-nubia-red-magic-9-pro-frp-bypass-by-drfone-android/"><u>About Nubia Red Magic 9 Pro FRP Bypass</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion-for-2024/"><u>Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://win-forum.techidaily.com/quickstart-guide-enhancing-windows-11-boot-performance-quickly-and-effectively/"><u>QuickStart Guide: Enhancing Windows 11 Boot Performance Quickly and Effectively</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-the-secrets-to-configuring-pc-manager/"><u>Unveiling the Secrets to Configuring PC Manager</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-netflix-subtitle-translation-methods-comprehensive-guide/"><u>Updated In 2024, Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-10-free-video-communication-tools-iphone-and-android-devices/"><u>[Updated] 2024 Approved Top 10 Free Video Communication Tools - iPhone and Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-investigating-diverse-google-ar-adornments/"><u>[Updated] In 2024, Investigating Diverse Google AR Adornments</u></a></li>
+<li><a href="https://extra-information.techidaily.com/asus-proart-hdr-master-the-4k-quest-continues-for-2024/"><u>ASUS ProArt HDR Master The 4K Quest Continues for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dealing-with-errors-fixing-issues-for-a-successful-start-of-football-manager-2023/"><u>Dealing With Errors - Fixing Issues For A Successful Start Of Football Manager 2023</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/getting-set-for-innovation-two-key-steps-towards-the-latest-windows-11-creators-release/"><u>Getting Set for Innovation: Two Key Steps Towards the Latest Windows 11 Creator's Release</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/guia-passo-a-passo-para-adicionar-som-de-acompanhamento-ao-seu-video-no-windows-e-mac/"><u>Guia Passo-a-Passo Para Adicionar Som De Acompanhamento Ao Seu Video No Windows E Mac</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-auto-translate-youtube-videos-into-different-languages/"><u>How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-vivo-v29e-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Vivo V29e Pattern Lock Screen</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>New 2024 Approved How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New 2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New 2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-9-choices-for-video-auto-translate/"><u>New 2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/official-epson-v700-printing-software-for-windows-users-get-the-latest-version-today/"><u>Official Epson V700 Printing Software for Windows Users - Get the Latest Version Today!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/undetected-retention-concealing-your-ai-discourse-trail/"><u>Undetected Retention: Concealing Your AI Discourse Trail</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>Updated 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
 </ul></div>
 

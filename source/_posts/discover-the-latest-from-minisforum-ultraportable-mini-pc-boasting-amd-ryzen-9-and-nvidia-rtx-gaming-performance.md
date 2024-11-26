@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2024-11-12T04:23:38.433Z
-updated: 2024-11-16T17:42:13.965Z
+date: 2024-11-20T20:20:41.611Z
+updated: 2024-11-26T17:48:54.490Z
 tags:
   - desktop
 categories:
@@ -40,6 +40,10 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -52,9 +56,17 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Miniproca)
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Miniproca)
 
@@ -77,33 +89,22 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/utting-edge-editing-techniques-youtube-and-comparable-tools/"><u>[New] Cutting-Edge Editing Techniques YouTube & Comparable Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-explore-and-capture-mountains-with-best-cameras/"><u>[New] Explore and Capture Mountains with Best Cameras</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-gigglestv-beginners-guide-to-making-videos/"><u>[New] GigglesTV Beginner's Guide to Making Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unseen-story-access-top-anonymous-tools/"><u>[Updated] 2024 Approved Unseen Story Access Top Anonymous Tools</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-name-change-in-google-meet-laptopmobile/"><u>[Updated] Navigating Name Change in Google Meet (Laptop/Mobile)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/accelerating-artistic-outputs-fast-tracked-google-collage-creation-for-2024/"><u>Accelerating Artistic Outputs Fast-Tracked Google Collage Creation for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-honor-90-gt-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Honor 90 GT Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oppo-a78-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo A78 5G Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-best-translator-to-translate-videos-online/"><u>The Best Translator to Translate Videos Online</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Updated In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-a-step-by-step-guide-to-microsoft-teams-snap-photos/"><u>[New] In 2024, A Step-by-Step Guide to Microsoft Teams Snap Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-perfect-your-titling-skills-with-our-best-practices/"><u>[New] In 2024, Perfect Your Titling Skills with Our Best Practices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-oscillation-crafting-box/"><u>[Updated] Oscillation Crafting Box</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-14-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-augmented-reality-excellence-mastering-the-use-of-spark-ar-luts/"><u>In 2024, Augmented Reality Excellence Mastering the Use of Spark AR LUTs</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-7-plusipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone 7 Plus/iPad/iPod</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-guide-how-to-download-and-update-dell-monitor-drivers-with-ease/"><u>Quick Guide: How to Download and Update Dell Monitor Drivers with Ease</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unlocking-advanced-android-screen-recording/"><u>Unlocking Advanced Android Screen Recording</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-value-proposition-a-revealing-look-at-hisenses-entry-level-50-inch-4k-tv-the-50h-model-reviewed/"><u>Unveiling the Value Proposition: A Revealing Look at Hisense's Entry-Level 50 Inch 4K TV - The 50H^ Model Reviewed</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>Updated In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

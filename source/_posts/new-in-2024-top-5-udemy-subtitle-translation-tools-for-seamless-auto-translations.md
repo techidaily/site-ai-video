@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations
-date: 2024-11-12T00:13:57.356Z
-updated: 2024-11-16T22:18:36.845Z
+date: 2024-11-22T16:23:19.566Z
+updated: 2024-11-26T20:07:57.876Z
 tags: 
   - ai translate video
   - ai generate video
@@ -28,6 +28,10 @@ Many dual subtitle tools are available on the market, but in this blog, we are c
 With the right use of AI, Machine Learning, and advanced algorithms, these tools set you up for success so you can learn any course of your liking, regardless of which language it is in. So, let’s uncover these tools and their key features.
 
 ## Part 2. 5 Best Udemy Subtitle Translators
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Udemy Dual Subtitles - Subtitles Translator
 
@@ -199,6 +203,10 @@ Open the online version of Wondershare Virbo - Video Translator on your web brow
 
 ![add the udemy video](https://images.wondershare.com/virbo/article/2024/03/udemy-subtitle-translation-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Customize the Translation Settings**
 
 Move down and choose “Original Video Language” and “Target Language” using their lists. Then, tap the downward icon of “Advanced Settings” and get multiple options later. From there, toggle the “Subtitles” option to generate translated subtitles in the video.
@@ -222,6 +230,10 @@ Upon setting the video translation parameters, press the “Translate the Video�
 <iframe width="750" height="421" src="//www.youtube.com/embed/NLbm_zwzmVY?start=705" allowfullscreen="allowfullscreen"></iframe>
 
  [Create Video Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4. FAQs about Udemy Subtitle Translator
 
@@ -257,22 +269,12 @@ But use Udemy subtitle translation tools like the ones we have mentioned above. 
      data-ad-slot="1223367746"></ins>
 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Everything You Want To Know About Kapwing Video Translation
 
 Effective communication extends beyond language barriers. As content creators strive for global reach, video translation takes center stage. Kapwing is one such Video Translation tool. It’s a versatile tool designed to bring down linguistic boundaries and elevate the impact of visual storytelling. In this article, we will delve into the key aspects of Kapwing, providing an insightful guide on its video translator, usage, and explore an alternative platform that complements or rivals its capabilities. So, join us as we unravel everything you need to know about the **Kapwing translate video** tool.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What is Kapwing
@@ -400,6 +402,10 @@ Let’s learn how to translate video into any language using Wondershare Virbo. 
 
 ![upload video to virbo video translator](https://images.wondershare.com/virbo/guide/windows/video-translate-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **INPUT REQUIREMENTS**
 
 Be mindful that your video adheres to the following conditions for best results.
@@ -485,6 +491,10 @@ Maestra.a is another excellent option. Unlike others, it’s an online spanish v
 -   Automatic subtitles and voiceover generation
 -   Works with online links from YouTube, Dropbox and Google Drive among others.
 -   Lets you edit your text before exporting
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. Step Guidance: Translating between English and Spanish
 
@@ -684,13 +694,6 @@ Let Virbo work its magic. Experience accurate subtitle translations that go beyo
 
  [Translate Video Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Exploring Alternative Options and Solutions
 
 While Virbo shines brightly in the realm of video translation, the landscape offers a multitude of alternatives, each with its own unique strengths. Here are two notable alternatives, including the renowned Google Translate and Amara, inviting users to explore diverse paths to seamless video translation.
@@ -847,13 +850,6 @@ Easily convert text into professional spokesperson videos in over 120+ voices & 
 
 ![Kapwing](https://images.wondershare.com/virbo/article/best-10-hindi-video-translators-with-step-by-step-guidance-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the world of instant video translation tools, [Kapwing](https://www.kapwing.com/tools/translate) takes the cake for being one of the most versatile tools out there. You can use the AI-powered tool in just a couple of minutes with a few clicks, and your work will be done easily.
 
 You can instantly translate videos to and from 70+ languages, which saves hours of manually translating videos to reach a global audience. Here are some of the key features of Kapwing:
@@ -885,6 +881,10 @@ One of the biggest benefits of using Flixier is that it is a free video translat
 ### 4\. Rask AI
 
 ![Rask AI](https://images.wondershare.com/virbo/article/best-10-hindi-video-translators-with-step-by-step-guidance-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Rask AI](https://www.rask.ai/tools/video-translator) is the future of video translations. It features over 130 languages, allowing the videos to resonate with viewers all around the globe. Moreover, it uses the latest AI tech to make sure that you get the best possible results every time you use its service.
 
@@ -927,6 +927,10 @@ While there are a lot of text-to-video translators, Typito goes beyond the regul
 ## 1\. Filmora
 
 ![Filmora](https://images.wondershare.com/virbo/article/best-10-hindi-video-translators-with-step-by-step-guidance-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While [Filmora](https://filmora.wondershare.com/) has a broader focus, it can do free translations for your videos. You can use the video speech-to-text tool to make your videos more readable. The 1-click translator can translate your video into English, Chinese, Hindi, Spanish, French, Korean, Arabic, Russian, and over 26 languages.
 
@@ -1207,6 +1211,10 @@ A relatively new tool, [Simplified](https://simplified.com/subtitle-translator/)
 
 ![Subtly AI subtitle translator](https://images.wondershare.com/virbo/article/ai-subtitle-translator-09.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the first time [Subly](https://www.getsubly.com/features/subtitle-translator) has made it to our top 10 list, and not without a reason. Subly has added some fantastic new features along with support for translating subtitles into 73 different languages. This **AI subtitle translator** now also allows quick adjustments like font, color, appearance and size, etc. Subly also has a subtitles app with which you can easily turn audio into videos by adding photos and logos.
 
 **Free Trial: Not Available**
@@ -1233,13 +1241,6 @@ This is the first time [Subly](https://www.getsubly.com/features/subtitle-transl
 3. Translation memory and terminology management services
 4. Automates workflows
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3. AI Subtitle Translation: Challenges & Limitations
 
 Even though AI has made strides in improving translations, there are still some limitations. Below are 4 major challenges:
@@ -1263,13 +1264,6 @@ After creating scripts, creators get to add voiceovers to their videos. Now, let
 Upon installing Wondershare Virbo on your computer, launch this tool to start generating content. On its main interface, press the "Create Video" button and choose the aspect ratio to enter the AI video generator.
 
 ![tap the create video button](https://images.wondershare.com/virbo/article/2024/03/virbo-ai-subtitle-translator-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Choose AI Avatar and Background for Your Video**
 
@@ -1298,6 +1292,10 @@ So, these are the top subtitle translators available today. These tools simplify
 ## Ultimate Guide to Translating YouTube Videos Without CC
 
 We are living in the age of social media, and YouTube is the world’s most popular video-sharing social platform. People use it to share knowledge, entertainment, and their views on diverse subjects. As it’s a global platform, people from all over the world can upload their content. This can, sometimes, create problems, particularly if the content is in a foreign language. Unfortunately, the language barrier hinders our understanding of a topic more often than we admit. While the YouTube Closed Captions (CC) feature offers some respite, not all videos have this option. In this article, we will discuss **how to translate YouTube video without CC** on your personal computer, so that you can explore and enjoy any content you want. Let’s dive in!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. Tool Introduction for Translating YouTube Videos Without CC
 
@@ -1338,13 +1336,6 @@ Wondershare Virbo isn't limited to an AI video translation feature; it is a comp
 
 Below is a simple step-by-step guide to translate Youtube video to English without cc. You can also use the same steps to translate your video into other languages like Chinese, German, Hindi, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step1Download Virbo and launch its video translator
 
 Go to the official Virbo link and download its latest version (or you can directly click the following download button). Install it on your computer. Once the setup finishes, launch Virbo and go to Video Translator as seen above.
@@ -1376,13 +1367,6 @@ AI tools often lack a complete understanding of the context. Writing a sentence 
 ### 02Clear Up any Ambiguities
 
 Ambiguous phrases are words in a language that convey more than one meaning, which can lead to inaccurate translations. So, clear up any ambiguous terms or expressions. Selecting a particular meaning of a phrase for your translation requires a keen eye for detail.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 03Consider the Cultural Nuances
 
@@ -1438,18 +1422,24 @@ All said, Wondershare Virbo emerges as an indispensable solution for transcendin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-discovering-10-prime-microphones-for-podcasting/"><u>[New] Discovering 10 Prime Microphones for Podcasting</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-revolutionizing-audio-documentation-the-art-of-call-recording/"><u>[New] In 2024, Revolutionizing Audio Documentation The Art of Call Recording</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-complete-guide-of-top-7-video-language-translators/"><u>A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/effizientes-nvme-klonen-auf-windows-entdecken-sie-den-top-nvme-duplikator/"><u>Effizientes NVMe Klonen Auf Windows: Entdecken Sie Den Top-NVMe Duplikator</u></a></li>
-<li><a href="https://win11.techidaily.com/guidelines-for-upholding-windows-datetime-integrity/"><u>Guidelines for Upholding Windows Date/Time Integrity</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y56-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y56 5G Bootloader Easily</u></a></li>
-<li><a href="https://techtrends.techidaily.com/movavi-on-site-gratis-conversion-von-m4v-mpg-videodateien-bewahrte-online-losung/"><u>Movavi: On-Site Gratis Conversion Von M4V MPG Videodateien - Bewährte Online-Lösung</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-solutions-for-addressing-known-graphics-driver-issues/"><u>Step-by-Step Solutions for Addressing Known Graphics Driver Issues</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-dominating-the-market-on-facebook-twitter-instagram-and-youtube/"><u>The Ultimate Guide to Dominating the Market on Facebook, Twitter, Instagram and YouTube</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-9-choices-for-video-auto-translate/"><u>Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-easy-steps-to-translate-video-on-twitter/"><u>Updated Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-translate-any-hindi-video-into-english-with-ai/"><u>Updated Translate Any Hindi Video Into English With AI</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-financial-forecasts-in-focus-select-stock-youtube-channels-for-2024/"><u>[New] Financial Forecasts in Focus Select Stock YouTube Channels for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-webcam-safety-essentials-the-best-covers-ranked/"><u>[New] In 2024, Webcam Safety Essentials The Best Covers Ranked</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-delving-deep-a-sincere-examination-of-recordcast/"><u>[Updated] Delving Deep A Sincere Examination of RecordCast</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unparalleled-8-webcams-elevate-your-livestream-experience/"><u>2024 Approved Unparalleled 8 Webcams Elevate Your Livestream Experience</u></a></li>
+<li><a href="https://ai-video.techidaily.com/asus-unveils-new-nuc-pertplus-model-packing-a-meteor-lake-cpu-core-ultra-5-125h-for-860/"><u>Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860</u></a></li>
+<li><a href="https://ai-video.techidaily.com/be-transparent-and-detailed/"><u>Be Transparent and Detailed</u></a></li>
+<li><a href="https://ai-video.techidaily.com/expert-analysis-on-hardware-by-toms-team/"><u>Expert Analysis on Hardware by Tom's Team</u></a></li>
+<li><a href="https://ai-video.techidaily.com/exploring-hardware-insights-with-tom-your-go-to-resource/"><u>Exploring Hardware Insights with Tom - Your Go-To Resource</u></a></li>
+<li><a href="https://ai-video.techidaily.com/fathers-day-special-unleash-your-gameplay-with-the-latest-ibuypower-gaming-desktop/"><u>Father's Day Special: Unleash Your Gameplay with the Latest iBuyPower Gaming Desktop</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-mac-studio-to-youtube-stream-imovie-video-upload-guide/"><u>From Mac Studio to YouTube Stream IMovie Video Upload Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-superb.techidaily.com/how-to-locate-your-archived-videos-on-facebook-a-step-by-step-guide/"><u>How to Locate Your Archived Videos on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/insightful-critique-unveiling-the-features-of-philips-wake-up-light-model-hf3505/"><u>Insightful Critique: Unveiling the Features of Philips Wake-Up Light Model HF3505</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/master-the-art-of-ipod-file-relocation-ultimate-techniques-for-transferring-images-audio-and-footage/"><u>Master the Art of iPod File Relocation: Ultimate Techniques for Transferring Images, Audio & Footage</u></a></li>
+<li><a href="https://ai-video.techidaily.com/toms-tech-insights-exploring-the-latest-in-hardware/"><u>Tom's Tech Insights: Exploring the Latest in Hardware</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-value-pruveeo-f5-1080p-dash-cam-assessment-for-budget-shoppers/"><u>Top Value Pruveeo F5 1080P Dash Cam Assessment for Budget Shoppers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-solution-for-stable-fifa-22-gaming-experience-on-windowsmac/"><u>Ultimate Solution for Stable FIFA 22 Gaming Experience on Windows/Mac</u></a></li>
 </ul></div>
 
