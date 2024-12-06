@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2024-11-25T16:24:45.929Z
-updated: 2024-11-26T20:07:37.913Z
+date: 2024-12-04T08:35:15.845Z
+updated: 2024-12-06T03:32:12.123Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,18 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-visualizing-success-designing-captivating-teasers-and-trailers-for-your-podcasts/"><u>[New] In 2024, Visualizing Success Designing Captivating Teasers and Trailers for Your Podcasts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/complete-guide-downloading-discord-video-content-across-devices-latest-techniques/"><u>Complete Guide: Downloading Discord Video Content Across Devices - Latest Techniques</u></a></li>
-<li><a href="https://techtrends.techidaily.com/defeating-the-blue-screen-expert-tips-for-fixing-critical-errors/"><u>Defeating the Blue Screen: Expert Tips for Fixing Critical Errors</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fixing-paramountplus-streaming-problems-on-amazon-firestick-a-step-by-step-guide/"><u>Fixing Paramount+ Streaming Problems on Amazon Firestick - A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-to-disabling-tailored-content-feed-for-you-on-instagram/"><u>Guide to Disabling Tailored Content Feed for You on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-multimedia-content-putting-photos-together-on-insta-story/"><u>In 2024, Mastering Multimedia Content Putting Photos Together on Insta Story</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-communication-on-the-go-with-quick-charging-jabra-talk-25/"><u>Mastering Communication on the Go with Quick-Charging Jabra Talk 25</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>New 2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-brief-review-of-capcut-translate-with-alternative/"><u>New A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/quickly-resolve-windows-11-safe-mode-failed-discover-3-simple-troubleshooting-steps/"><u>Quickly Resolve 'Windows 11 Safe Mode Failed'? Discover 3 Simple Troubleshooting Steps</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-s23plus-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy S23+ Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated In 2024, A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-social-media-success-iphone-360-video-filming-guide/"><u>[New] Social Media Success IPhone 360 Video Filming Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-convert-youtube-to-igtv-videos-3-ways/"><u>[Updated] 2024 Approved How to Convert YouTube to IGTV Videos? [3 Ways]</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-step-by-step-approach-to-freeing-up-space-in-figma/"><u>[Updated] A Step-by-Step Approach to Freeing Up Space in Figma</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-hd-video-recording-for-windows-10-users/"><u>[Updated] HD Video Recording for Windows 10 Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamlessly-streaming-social-media-vids-via-television-for-2024/"><u>[Updated] Seamlessly Streaming Social Media Vids via Television for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-best-tool-to-translate-youtube-video-to-arabic/"><u>2024 Approved Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://ai-video.techidaily.com/7-best-real-time-video-translation-apps/"><u>7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/everything-you-want-to-know-about-kapwing-video-translation/"><u>Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-infinix-smart-8-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Infinix Smart 8</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-nokia-xr21-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Nokia XR21 Phone?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-driver-update-for-intel-wireless-ac-9560-get-it-now/"><u>Latest Driver Update for Intel Wireless AC 9560: Get It Now!</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New In 2024, Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-the-best-translator-to-translate-videos-online/"><u>New The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-performing-non-macbook-laptop-challenges-apples-dominance-expert-review/"><u>Top-Performing Non-MacBook Laptop Challenges Apple’s Dominance - Expert Review</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Updated In 2024, Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated In 2024, Translate Live Video Making It Possible With The Best Tool</u></a></li>
 </ul></div>
 

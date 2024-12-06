@@ -1,7 +1,7 @@
 ---
 title: "Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860"
-date: 2024-11-23T16:41:09.145Z
-updated: 2024-11-26T20:22:47.265Z
+date: 2024-12-01T02:07:51.559Z
+updated: 2024-12-06T05:49:13.713Z
 tags:
   - desktop
 categories:
@@ -38,7 +38,7 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
  Apart from having a smaller form factor, it might be difficult to ignore other alternatives once you choose your preferred CPU, storage, and RAM options and weigh its offerings and final price against what you would get with a custom-built mini-ITX system, including more I/O options and audio jacks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,20 +66,20 @@ Asus has released the all-new[NUC 14 Pro+](https://clk.tradedoubler.com/click?p=
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-campaign-tactics-for-enhancing-health-awareness/"><u>[New] In 2024, Campaign Tactics for Enhancing Health Awareness</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-youtubes-feature-switch-between-commenting-states/"><u>[New] In 2024, Mastering YouTube's Feature Switch Between Commenting States</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/a-deep-dive-into-googles-recent-advancement-the-powerful-palm-2-llm-uncovered/"><u>A Deep Dive Into Google's Recent Advancement: The Powerful PaLM 2 LLM Uncovered</u></a></li>
-<li><a href="https://ai-video.techidaily.com/bang-for-your-buck-the-acer-predator-orion-50-revealed-top-tier-tech-at-a-fraction-of-the-price/"><u>Bang for Your Buck: The Acer Predator Orion 50# Revealed – Top-Tier Tech at a Fraction of the Price</u></a></li>
-<li><a href="https://ai-video.techidaily.com/comparative-analysis-of-revenue-projections-amd-sets-higher-target-at-4-billion-while-nvidia-leads-the-race-with-a-40-billion-goal/"><u>Comparative Analysis of Revenue Projections: AMD Sets Higher Target at $4 Billion, While Nvidia Leads the Race with a $40 Billion Goal</u></a></li>
-<li><a href="https://ai-video.techidaily.com/discovering-high-performance-tech-a-deep-dive-on-toms-hardware/"><u>Discovering High-Performance Tech: A Deep Dive on Tom's Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/dissecting-the-pixel-slate-experience-navigating-through-chromeos-challenges/"><u>Dissecting the Pixel Slate Experience: Navigating Through ChromeOS Challenges</u></a></li>
-<li><a href="https://ai-video.techidaily.com/dive-into-in-depth-hardware-guides-by-toms-tech-experts/"><u>Dive Into In-Depth Hardware Guides by Tom's Tech Experts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-the-copyright-code-for-insta-musicians/"><u>In 2024, Decoding the Copyright Code for Insta Musicians</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-motorola-moto-e13-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Motorola Moto E13 to Gmail | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/modern-ai-graphics-cards-power-gluttony-single-unit-consumes-37-mwhyear-eclipsing-homes-energy-usage-by-13-millions/"><u>Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-get-ready-to-edit-meeting-premiere-pros-system-demands/"><u>New In 2024, Get Ready to Edit Meeting Premiere Pros System Demands</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/quick-file-integration-from-pc-to-iphone-for-2024/"><u>Quick File Integration From PC to iPhone for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355816-9781591434160-spirit-marriage/"><u>Spirit Marriage | Free Book</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unveiling-the-best-in-computing-with-toms-gear/"><u>Unveiling the Best in Computing with Tom's Gear</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-livestreaming-titan-face-off/"><u>[New] 2024 Approved LiveStreaming Titan Face-Off</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-for-confirming-yt-account/"><u>[New] 2024 Approved The Ultimate Checklist for Confirming YT Account</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-maximize-your-results-with-these-10-free-jpeg-to-gif-tools/"><u>[New] Maximize Your Results with These 10 Free JPEG-to-GIF Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-image-quality-a-newbies-comprehensible-guide/"><u>[New] Unveiling Image Quality A Newbie's Comprehensible Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ai-helper-dilemma-solved-making-sense-of-the-great-alexa-vs-google-assistant-debate/"><u>AI Helper Dilemma Solved: Making Sense of the Great Alexa Vs. Google Assistant Debate</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>In 2024, Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-google-pixel-8-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Google Pixel 8 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>New 2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>New 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-auto-translate-youtube-videos-into-different-languages/"><u>New In 2024, How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-srt-subtitle-translation-tools-and-techniques/"><u>New SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>Updated 2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
 </ul></div>
 

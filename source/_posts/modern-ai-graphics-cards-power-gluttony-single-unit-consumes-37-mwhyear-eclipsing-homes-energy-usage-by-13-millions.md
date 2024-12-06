@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-11-23T20:19:01.462Z
-updated: 2024-11-26T19:44:15.209Z
+date: 2024-11-30T04:39:57.632Z
+updated: 2024-12-06T11:36:17.227Z
 tags:
   - desktop
 categories:
@@ -16,7 +16,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
@@ -41,7 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -67,22 +67,18 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-is-it-wise-to-keep-off-facebook-activity-displayed-insights-for-2024/"><u>[New] Is It Wise to Keep Off-Facebook Activity Displayed? Insights for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-to-adding-text-on-images/"><u>[New] Ultimate Guide to Adding Text on Images</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-a-comparative-look-at-samsung-photo-tools/"><u>2024 Approved A Comparative Look at Samsung Photo Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-for-free-video-translator-downloading/"><u>A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/expertly-restore-your-damaged-photos/"><u>Expertly Restore Your Damaged Photos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-samsung-galaxy-f54-5g-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Samsung Galaxy F54 5G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-google-pixel-8-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Google Pixel 8 Pro Data? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-realme-gt-neo-5-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Realme GT Neo 5 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/macpaws-innovative-solution-an-itunes-app-store-substitute-adapting-to-updated-policies/"><u>MacPaw's Innovative Solution: An iTunes App Store Substitute Adapting to Updated Policies</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-youtube-videos-to-english-subtitles/"><u>New How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-free-mpeg-video-joiner-software-top-selections/"><u>New In 2024, Free MPEG Video Joiner Software Top Selections</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-to-ios-photography-apps-x-8/"><u>Ultimate Guide to iOS Photography Apps (X, 8)</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-epicurean-escapades-crafting-kitchen-films/"><u>[New] 2024 Approved Epicurean Escapades Crafting Kitchen Films</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-broadcast-podcast-episode-via-insta-story/"><u>[New] Broadcast Podcast Episode via Insta Story</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-efficient-transfer-of-movie-maker-videos-to-vimeo/"><u>[New] Efficient Transfer of Movie Maker Videos to Vimeo</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-warriors-epic-valhallas-endgame/"><u>2024 Approved Warriors' Epic Valhalla's Endgame</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breakthrough-visuals-hp-envy-27-monitors-4k-showcase-for-2024/"><u>Breakthrough Visuals HP Envy 27 Monitor's 4K Showcase for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-samsung-galaxy-a14-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Samsung Galaxy A14 5G PC | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-f25-pro-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo F25 Pro 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-the-best-streaming-friendly-vpns-for-netflix-and-beyond-in-2ve-been-with-you-if-theres-anything-else-i-can-help-with-or-if-you-need-furthe14/"><u>Ultimate Guide to the Best Streaming-Friendly VPNs for Netflix and Beyond in 2Ve Been with You! If There's Anything Else I Can Help with or if You Need Further Optimization Tips, Feel Free to Ask.</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/youtube-video-wizardry-top-conversion-techniques-to-mp4mpeg/"><u>YouTube Video Wizardry Top Conversion Techniques to MP4/MPEG</u></a></li>
 </ul></div>
 

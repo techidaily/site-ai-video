@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Top 10 Solutions for Movie Subtitle Translation Making Things Perfect
-date: 2024-11-25T20:52:19.582Z
-updated: 2024-11-26T16:30:05.565Z
+date: 2024-11-29T08:24:33.909Z
+updated: 2024-12-06T13:04:56.348Z
 tags: 
   - ai translate video
   - ai generate video
@@ -66,6 +66,10 @@ This online movie subtitle translator can prove a good option in many terms. Its
 
 ![translate subtitles movie subtitle translator](https://images.wondershare.com/virbo/article/movie-subtitle-translation-with-perfection-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Key Features
 
 1. Drag and drop your file in the given panel for translation. It supports the subtitles file format of SRT, ASS, SBV, VTT, STL, and SUB.
@@ -89,10 +93,6 @@ Another option to look for auto-translated movie subtitles is VEED.io. You don't
 If you are looking for a movie subtitle translator online for free, try this tool. It can translate files into 80 different languages. Non-professionals can also translate subtitles for their projects with its minimalist interface. Besides, you can use its multiple-language translator feature. With this option, people can translate a subtitle file into different languages simultaneously.
 
 ![movie-subtitle-translation-with-perfection-3.jpg](https://images.wondershare.com/virbo/article/movie-subtitle-translation-with-perfection-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Key Features
 
@@ -189,6 +189,10 @@ This tool cannot only translate videos but also offers other features for genera
 3. **AI-Generated Script:** Are you tired of browsing sites to find a script for an engaging video? You can use the AI script-generating feature of Virbo to get the required scripts. This function allows you to insert topic details within 2000 characters. For specified responses, you can pick a happier, shorter, or expanded content style.
 4. **AI Talking Photos:** Spread laughter and include creativity in your project by making talking photos. Virbo provides you with ten talking photo templates from its library. Despite that, you can import your straight-looking picture. Later, paste your script or generate with AI to make the photos talkable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Translate Subtitles Using Video Translator Feature in Virbo
 
 Virbo offers you a seamless experience in creating appealing videos. After unlocking its fruitful features, you might be interested in using it. Let us help you to effectively use the **movie subtitle translator** option of this tool.
@@ -236,6 +240,10 @@ By **translating Instagram videos**, you can engage with users from different cu
 
 ![translate-instagram-1.jpg](https://images.wondershare.com/virbo/article/2024/03/translate-instagram-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1. The Power of Video Content on Instagram
 
 Short-form videos on Instagram are popular in today's fast-paced digital world. People prefer quick, easy-to-watch content that is shareable. Given Instagram's status as a leading video-sharing platform, it’s crucial to make effective social media strategies.
@@ -254,10 +262,6 @@ Create narratives that draw viewers in and leave a lasting impression. A strong 
 
 Instagram's video content has facilitated connections with diverse audiences worldwide. You can leverage this platform to reach a global audience and enhance inclusivity by translating your videos. For brands and content creators, translating Instagram videos can help them break language barriers and make their content accessible to a wider range of viewers. For Instagram users, they can understand and relate to the content in their preferred language.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2. How to Translate Instagram Video Captions into Other Languages?
 
 "Can I **translate videos on Instagram** automatically?" Many users are curious about whether Instagram can do it or not. Instagram offers translation features for captions, comments on posts, and bios in profiles. But currently, Instagram cannot translate videos automatically.
@@ -269,10 +273,6 @@ To translate video captions, you can follow the steps:
 - **Step 3.** Tap “See Translation” to translate the caption and comments of that post.
 
 ![translate-instagram-2.jpeg](https://images.wondershare.com/virbo/article/2024/03/translate-instagram-2.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you want to translate the video's audio, you must use third-party software. There are several applications and online tools that specialize in translating video, such as Wondershare Virbo – Video Translator tool. Using this tool, you can translate Instagram videos and enjoy them hassle-free.
 
@@ -303,10 +303,6 @@ Follow this step-by-step guide on how to translate Instagram videos using [<u>V
 First, upload the video file you want to translate. Next, select the original video language and choose the target language. You can also activate the Lip Sync feature to ensure the accuracy of audio translation with the video's lip movements or toggle on the Subtitle features.
 
 ![translate-instagram-video-6.jpeg](https://images.wondershare.com/virbo/article/2024/03/translate-instagram-video-6.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Step 5.** Click "Translate this video".Virbo AI will translate the audio and synchronize it with the video. The duration and complexity of the video may affect the processing time.
 
@@ -352,10 +348,6 @@ Joining online meetings might get tricky when crucial details slip by because of
 
 ![descript website interface](https://images.wondershare.com/virbo/article/2024/03/convert-video-voice-to-text-02.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 With Descript, you can easily review key points, find specific moments, and share the transcript with colleagues who couldn’t make it. Say goodbye to missed details and hello to smoother online meetings with Descript.
 
 How To Convert Video Voice to Text Automatically Using Descript?
@@ -386,10 +378,6 @@ Click the “**Actions...**” button on the text editor and select “**Remove 
 
 ![select file format for transcription](https://images.wondershare.com/virbo/article/2024/03/convert-video-voice-to-text-07.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2. For E-Learning Online: Convert Video Voice to Text by Happy Scribe
 
 Getting new skills through e-learning is great, but listening to long video lectures can be tiresome. But with AI tools like Happy Scribe, it is easier to study. It has an intuitive interface and lets you convert video voice to text online for free.
@@ -410,10 +398,6 @@ You can use Happy Scribe as a **YouTube video voice-to-text converter online**. 
 
 ![upload video file or add url](https://images.wondershare.com/virbo/article/2024/03/convert-video-voice-to-text-09.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 3:** A pop-up window will appear once you’ve chosen the upload source. Choose the language spoken in your video from the dropdown menu. Then, select **Machine generated** as the transcription method.
 
 ![select transcription method](https://images.wondershare.com/virbo/article/2024/03/convert-video-voice-to-text-10.jpg)
@@ -428,10 +412,6 @@ You can use Happy Scribe as a **YouTube video voice-to-text converter online**. 
 ![export transcription](https://images.wondershare.com/virbo/article/2024/03/convert-video-voice-to-text-12.jpg)
 
 Moving beyond desktop meetings and e-learning, businesses often need an easier and faster way to translate video content for a global audience. That is where AI video translation can help you. In the next part, you’ll explore how [<u>Wondershare Virbo</u>](https://virbo.wondershare.com/) can help you efficiently translate video voice to text in multiple languages. Read on to make your marketing materials accessible to a wider audience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3. Virbo: Best Video Voice-to-Text Translator Online for Global Marketing
 
@@ -643,6 +623,10 @@ Subtitles also help people to understand the content of the video. They are best
 
 Are you looking for an all-in-one software that translates your video or provides a creative look to your video? No worries ![Wondershare Virbo](https://virbo.wondershare.com/ai-video-generator-online.html) is here to assist you. It uses advanced artificial intelligence to **change video languages**, or even generate engaging videos. It is an online tool, but also available for desktop or iOS/Android. You can translate your videos into more than 20+ languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![online-video-language-changer](https://images.wondershare.com/virbo/article/online-video-language-changer-1.png)
 
  [Change Video Language Online](https://tools.techidaily.com/wondershare/virbo/download/) [Free Download](https://tools.techidaily.com/wondershare/virbo/download/)
@@ -694,6 +678,10 @@ Step 1: Download Wondershare Virbo and select the Video Translator option.
 Step 2: A popup will appear for you to upload your videos.
 
 ![upload video to video translator](https://images.wondershare.com/virbo/guide/windows/video-translate-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **INPUT REQUIREMENTS**
 
@@ -813,6 +801,10 @@ TYPITO is also an **online video language changer** that automatically translate
 
 ![Typito video language changer](https://images.wondershare.com/virbo/article/online-video-language-changer-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to create YouTube videos and add translation inside the video, you can also try TYPITO. It helps to burn the subtitles files into your video. Adjust the font, size, color, layout, and position of the subtitles before downloading the file. If you are creating an educational video, then you can use styled themes to make your subtitles more attractive.
 
 **Key Features of TYPITO:**
@@ -841,7 +833,7 @@ Translating videos and adding captions to your YouTube videos makes your content
 ![Veed instant video translator tool](https://images.wondershare.com/virbo/article/veed-translate-01.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Seamless integration with YouTube and other social media platforms**
@@ -896,6 +888,10 @@ Step 4 Check Your Translation Settings
 ![how to translate with Veed – Step 4](https://images.wondershare.com/virbo/article/veed-translate-05.jpg)
 
 Veed automatically detects the language in the video. So, take a look at all the other settings, like the language you want to translate into and content quality and click Translate. Veed will start generating the translation in your preferred language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Best Alternative to Veed.io
 
@@ -1071,10 +1067,6 @@ One of the key features of HappyScribe is that it supports various video and aud
 - Supports over 40 video and audio formats
 - Easy 4-step video translation
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Keevi
 
 ![Keevi](https://images.wondershare.com/virbo/article/best-10-free-video-translators-to-mitigate-translation-risks-5.jpg)
@@ -1117,9 +1109,17 @@ The video translation tool is faster and comes with the highest accuracy. It als
 - Supports most video formats
 - Increase the reach and engagement of your content
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Maestra
 
 ![Maestra](https://images.wondershare.com/virbo/article/best-10-free-video-translators-to-mitigate-translation-risks-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Maestra](https://maestra.ai/tools/video-translator) is another popular AI video translator software that puts ease of use at its forefront. It specializes in making things easy for you every step of the way. It does not require any credit card or even an account to work.
 
@@ -1197,14 +1197,19 @@ An underrated feature of Virbo is its ability to generate AI voice from text. It
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-enhancing-conversion-rates-with-twitter-ads/"><u>[New] 2024 Approved Enhancing Conversion Rates with Twitter Ads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-music-video-madness-top-10-on-social-sphere/"><u>[New] 2024 Approved Music Video Madness Top 10 on Social Sphere</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-windowsnap-tool-for-straightforward-recording/"><u>[New] In 2024, WindowSnap Tool for Straightforward Recording</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-professional-insights-crafting-youtube-trailers-using-filmora/"><u>[Updated] Professional Insights Crafting YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Lava Agni 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>New In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-srt-subtitle-translation-tools-and-techniques/"><u>Updated 2024 Approved SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-the-best-translator-to-translate-videos-online/"><u>Updated The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-understanding-the-dynamics-behind-youtube-video-rankings/"><u>[Updated] Understanding the Dynamics Behind YouTube Video Rankings</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024s-most-wanted-the-definitive-guide-to-high-performance-gaming-machines/"><u>2024'S Most Wanted: The Definitive Guide to High-Performance Gaming Machines</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-engagement-top-5-typeface-tools-to-amplify-your-tiktok-reach/"><u>Crafting Engagement Top 5 Typeface Tools to Amplify Your TikTok Reach</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/easy-tutorial-on-reflecting-android-display-on-an-lg-smart-television/"><u>Easy Tutorial on Reflecting Android Display on an LG Smart Television</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/extracting-audio-from-films-three-effective-methods-just-for-you/"><u>Extracting Audio From Films: Three Effective Methods Just for You</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-audio-issues-solving-sound-stutters-and-distortions-in-windows-11-and-7/"><u>Fix Your Audio Issues: Solving Sound Stutters and Distortions in Windows 11 & 7</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-journey-through-simulated-realities-vr-basics/"><u>In 2024, Journey Through Simulated Realities VR Basics</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/motorola-moto-g73-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Moto G73 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/plants-vs-zombies-neighborville-a-hilarious-adventure-gone-right/"><u>Plants Vs. Zombies: Neighborville - A Hilarious Adventure Gone Right</u></a></li>
+<li><a href="https://ai-video.techidaily.com/revolutionize-your-workflow-the-mighty-briefcase-with-up-to-amo-368tb-of-nvme-ssds-equipped-with-high-performance-components/"><u>Revolutionize Your Workflow: The Mighty Briefcase With Up to Amo 368TB of NVMe SSDs, Equipped with High-Performance Components</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/seamless-transfer-of-iphone-contacts-between-devices-via-icloud-a-comprehensive-tutorial/"><u>Seamless Transfer of iPhone Contacts Between Devices via iCloud: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://ai-video.techidaily.com/toms-computer-and-gadget-hub-in-depth-analysis-of-electronics/"><u>Tom's Computer & Gadget Hub: In-Depth Analysis of Electronics</u></a></li>
+<li><a href="https://ai-video.techidaily.com/watch-the-hottest-the-7-premier-platforms-featuring-latest-movie-clips/"><u>Watch the Hottest: The 7 Premier Platforms Featuring Latest Movie Clips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
 </ul></div>
 

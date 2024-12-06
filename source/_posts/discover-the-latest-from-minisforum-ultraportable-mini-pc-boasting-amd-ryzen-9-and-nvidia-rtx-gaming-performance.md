@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2024-11-20T20:20:41.611Z
-updated: 2024-11-26T17:48:54.490Z
+date: 2024-12-04T02:48:52.140Z
+updated: 2024-12-06T13:04:48.034Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,22 +89,19 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-a-step-by-step-guide-to-microsoft-teams-snap-photos/"><u>[New] In 2024, A Step-by-Step Guide to Microsoft Teams Snap Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-perfect-your-titling-skills-with-our-best-practices/"><u>[New] In 2024, Perfect Your Titling Skills with Our Best Practices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-oscillation-crafting-box/"><u>[Updated] Oscillation Crafting Box</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-apple-iphone-14-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-augmented-reality-excellence-mastering-the-use-of-spark-ar-luts/"><u>In 2024, Augmented Reality Excellence Mastering the Use of Spark AR LUTs</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-7-plusipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone 7 Plus/iPad/iPod</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-guide-how-to-download-and-update-dell-monitor-drivers-with-ease/"><u>Quick Guide: How to Download and Update Dell Monitor Drivers with Ease</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/unlocking-advanced-android-screen-recording/"><u>Unlocking Advanced Android Screen Recording</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-value-proposition-a-revealing-look-at-hisenses-entry-level-50-inch-4k-tv-the-50h-model-reviewed/"><u>Unveiling the Value Proposition: A Revealing Look at Hisense's Entry-Level 50 Inch 4K TV - The 50H^ Model Reviewed</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>Updated In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://win-best.techidaily.com/1-windows-8-aktualisierungsprobleme-beheben-sie-den-fehlercode-80072e/"><u>1. Windows 8 Aktualisierungsprobleme - Beheben Sie Den Fehlercode 80072E</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-leveraging-innovative-features-a-guide-to-implementing-speech-inputs-in-powerpoint/"><u>2024 Approved Leveraging Innovative Features A Guide to Implementing Speech Inputs in PowerPoint</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-upside-down-visuals-instagrams-guide-to-flipping-and-sharing-videos/"><u>2024 Approved Upside Down Visuals Instagram's Guide to Flipping & Sharing Videos</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/cambiar-archivos-de-video-avi-a-formato-flv-sin-coste-mediante-herramientas-online/"><u>Cambiar Archivos De Video AVI a Formato FLV Sin Coste Mediante Herramientas Online</u></a></li>
+<li><a href="https://os-tips.techidaily.com/diy-ringtone-crafting-how-to-make-unique-tones-for-your-iphone/"><u>DIY Ringtone Crafting: How to Make Unique Tones for Your iPhone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-guide-how-to-install-samsung-adb-drivers-for-root-access-and-troubleshooting/"><u>Easy Guide: How to Install Samsung ADB Drivers for Root Access and Troubleshooting</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-unlocking-global-audiences-top-video-language-converters/"><u>In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://ai-video.techidaily.com/maximize-yandex-translate-in-video-translation-and-beyond/"><u>Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>New 2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>New 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-nokia-g42-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Nokia G42 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-7-fps-experiences-of-the-decade-for-2024/"><u>Top 7 FPS Experiences of the Decade for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-a-brief-review-of-capcut-translate-with-alternative/"><u>Updated A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Be Transparent and Detailed
-date: 2024-11-23T19:53:07.477Z
-updated: 2024-11-26T20:44:13.967Z
+date: 2024-12-05T02:18:53.791Z
+updated: 2024-12-05T20:53:31.050Z
 categories:
   - BestProducts
 description: This Article Describes Be Transparent and Detailed
@@ -18,7 +18,7 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -43,13 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 3.6
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -72,10 +72,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  _We purchased the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Standard Sony**
 
@@ -103,6 +99,10 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
@@ -118,7 +118,7 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -143,6 +143,10 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: A bit sluggish but good enough**
 
  Android TV has come a long way since its debut, but not all TVs are getting timely updates, and these lower-end Sony TVs are notoriously slow for this. While some TVs are already running Android TV 9.0, many are stuck with older versions.
@@ -157,10 +161,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -168,6 +168,10 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -186,10 +190,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 **A solid IPS panel 4K TV.**
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,21 +220,16 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-easy-access-unlimited-tones-choose-from-4-sites/"><u>[New] In 2024, Easy Access, Unlimited Tones Choose From 4 Sites</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rofessionals-guide-selecting-premium-video-card-options/"><u>[New] Professional's Guide Selecting Premium Video Card Options</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-integrity-of-format-with-ffmpegs-audio-recapture-methods/"><u>[New] The Integrity of Format with FFmpeg's Audio Recapture Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>[Updated] From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/can-it-be-me-discover-techniques-for-identifying-whether-your-privacy-is-compromised-by-an-airtag/"><u>Can It Be Me? Discover Techniques for Identifying Whether Your Privacy Is Compromised by an AirTag.</u></a></li>
-<li><a href="https://ai-video.techidaily.com/capturing-moments-kids-laughter/"><u>Capturing Moments, Kids Laughter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/discover-the-aquatic-style-tecno-x-geekom-g1-your-next-gaming-unit-with-liquid-cooling-and-intel-i9-processor/"><u>Discover the Aquatic Style: Tecno X Geekom G1, Your Next Gaming Unit with Liquid Cooling & Intel I9 Processor</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-infinix-note-30i-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Infinix Note 30i without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/innovative-computing-solutions-featured-and-analyzed-by-toms-gurus/"><u>Innovative Computing Solutions Featured and Analyzed by Tom's Gurus</u></a></li>
-<li><a href="https://win-answers.techidaily.com/logitech-c920-camera-malfunction-heres-how-to-restore-functionality/"><u>Logitech C920 Camera Malfunction? Here's How to Restore Functionality</u></a></li>
-<li><a href="https://ai-video.techidaily.com/ryzen-9-powerhouse-in-a-compact-form-the-mini-pc-with-touchscreen-next-level-cpu-and-speedy-ssds/"><u>Ryzen 9 Powerhouse in a Compact Form: The Mini PC with Touchscreen, Next-Level CPU, and Speedy SSDs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-command-center-where-you-create-on-youtube-for-2024/"><u>The Command Center Where You Create on YouTube for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ultimate-guide-to-gadgets-and-hardware-by-toms-team/"><u>The Ultimate Guide to Gadgets and Hardware by Tom's Team</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-tech-review-in-depth-guides-and-gear-insights/"><u>Tom's Tech Review: In-Depth Guides & Gear Insights</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-from-novice-to-pro-top-animation-tools-for-every-level-of-expertise-for-2024/"><u>Updated From Novice to Pro Top Animation Tools for Every Level of Expertise for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-create-news-style-outro/"><u>[Updated] In 2024, How To Create News Style Outro</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-the-world-exploring-facebook-twitter-instagram-and-youtube/"><u>Connecting the World: Exploring Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-top-7-online-auto-subtitle-translators-for-content-creators/"><u>In 2024, Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722970246502-litigation-is-subject-to-public-record-laws-while-arbitration-results-are-generally-private-and-confidential/"><u>Litigation Is Subject to Public Record Laws, While Arbitration Results Are Generally Private and Confidential.</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/microsoft-store-repair-protocol-for-error-code-x800704cf/"><u>Microsoft Store Repair Protocol for Error Code X800704CF</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New 2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>New Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-instant-issues-with-the-sims-3-for-pc-quick-solutions-inside/"><u>Resolving Instant Issues with The Sims 3 for PC – Quick Solutions Inside!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-combining-multiple-wma-audio-files-into-a-single-file/"><u>Step-by-Step Guide: Combining Multiple WMA Audio Files Into a Single File</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-unlocking-global-audiences-top-video-language-converters/"><u>Updated Unlocking Global Audiences Top Video Language Converters</u></a></li>
 </ul></div>
 
