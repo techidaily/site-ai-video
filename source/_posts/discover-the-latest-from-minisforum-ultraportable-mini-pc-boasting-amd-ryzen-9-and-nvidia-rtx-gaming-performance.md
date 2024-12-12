@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2024-12-04T02:48:52.140Z
-updated: 2024-12-06T13:04:48.034Z
+date: 2024-12-09T18:17:56.476Z
+updated: 2024-12-11T20:25:19.060Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,19 +89,16 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-best.techidaily.com/1-windows-8-aktualisierungsprobleme-beheben-sie-den-fehlercode-80072e/"><u>1. Windows 8 Aktualisierungsprobleme - Beheben Sie Den Fehlercode 80072E</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-leveraging-innovative-features-a-guide-to-implementing-speech-inputs-in-powerpoint/"><u>2024 Approved Leveraging Innovative Features A Guide to Implementing Speech Inputs in PowerPoint</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-upside-down-visuals-instagrams-guide-to-flipping-and-sharing-videos/"><u>2024 Approved Upside Down Visuals Instagram's Guide to Flipping & Sharing Videos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/cambiar-archivos-de-video-avi-a-formato-flv-sin-coste-mediante-herramientas-online/"><u>Cambiar Archivos De Video AVI a Formato FLV Sin Coste Mediante Herramientas Online</u></a></li>
-<li><a href="https://os-tips.techidaily.com/diy-ringtone-crafting-how-to-make-unique-tones-for-your-iphone/"><u>DIY Ringtone Crafting: How to Make Unique Tones for Your iPhone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-guide-how-to-install-samsung-adb-drivers-for-root-access-and-troubleshooting/"><u>Easy Guide: How to Install Samsung ADB Drivers for Root Access and Troubleshooting</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-unlocking-global-audiences-top-video-language-converters/"><u>In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://ai-video.techidaily.com/maximize-yandex-translate-in-video-translation-and-beyond/"><u>Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>New 2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>New 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-nokia-g42-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Nokia G42 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/top-7-fps-experiences-of-the-decade-for-2024/"><u>Top 7 FPS Experiences of the Decade for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-brief-review-of-capcut-translate-with-alternative/"><u>Updated A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-best-video-equipment-for-documenting-dynamic-musical-performances/"><u>[New] In 2024, Best Video Equipment for Documenting Dynamic Musical Performances</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-depth-analysis-the-powerhouse-in-your-pocket-lightroom-for-2024/"><u>[Updated] In-Depth Analysis The Powerhouse in Your Pocket - Lightroom for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>2024 Approved 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016854851-fixing-auditory-glitches-while-playing-outriders-effective-strategies-inside/"><u>Fixing Auditory Glitches While Playing Outriders - Effective Strategies Inside</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-from-apple-iphone-11-without-password-by-drfone-ios/"><u>How to Delete iCloud Account From Apple iPhone 11 without Password?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-honor-magic-6-lite-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Honor Magic 6 Lite</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-honor-x9a-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Honor X9a Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>New 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>New In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated 2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-11-30T04:39:57.632Z
-updated: 2024-12-06T11:36:17.227Z
+date: 2024-12-06T02:27:33.736Z
+updated: 2024-12-12T00:29:55.635Z
 tags:
   - desktop
 categories:
@@ -16,7 +16,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
@@ -41,7 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -67,18 +67,20 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-epicurean-escapades-crafting-kitchen-films/"><u>[New] 2024 Approved Epicurean Escapades Crafting Kitchen Films</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-broadcast-podcast-episode-via-insta-story/"><u>[New] Broadcast Podcast Episode via Insta Story</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-efficient-transfer-of-movie-maker-videos-to-vimeo/"><u>[New] Efficient Transfer of Movie Maker Videos to Vimeo</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-warriors-epic-valhallas-endgame/"><u>2024 Approved Warriors' Epic Valhalla's Endgame</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/breakthrough-visuals-hp-envy-27-monitors-4k-showcase-for-2024/"><u>Breakthrough Visuals HP Envy 27 Monitor's 4K Showcase for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-samsung-galaxy-a14-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Samsung Galaxy A14 5G PC | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-f25-pro-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo F25 Pro 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-the-best-streaming-friendly-vpns-for-netflix-and-beyond-in-2ve-been-with-you-if-theres-anything-else-i-can-help-with-or-if-you-need-furthe14/"><u>Ultimate Guide to the Best Streaming-Friendly VPNs for Netflix and Beyond in 2Ve Been with You! If There's Anything Else I Can Help with or if You Need Further Optimization Tips, Feel Free to Ask.</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/youtube-video-wizardry-top-conversion-techniques-to-mp4mpeg/"><u>YouTube Video Wizardry Top Conversion Techniques to MP4/MPEG</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-instantaneous-google-collage-a-speedy-diy-method/"><u>[New] 2024 Approved Instantaneous Google Collage A Speedy DIY Method</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>2024 Approved Effortless YouTube Video to Text Conversion at No Cost!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-the-art-of-combining-igtv-with-insta-stories/"><u>2024 Approved Mastering the Art of Combining IGTV with Insta Stories</u></a></li>
+<li><a href="https://ai-video.techidaily.com/9-best-french-video-translators-online-and-download-options/"><u>9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-into-your-youtube-watches-3-methods-50-chars-for-2024/"><u>Easing Into Your YouTube Watches 3 Methods (50 Chars) for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-reinstall-your-hardware-drivers-on-windows-11107-by-drivereasy-guide/"><u>How to use Device Manager to reinstall your hardware drivers on Windows 11/10/7</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 15 Pro With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-vivo-s17t-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Vivo S17t? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>New 2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209911680-9780578624549-seeing-is-believing/"><u>Seeing Is Believing | Free Book</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upcoming-google-pixel-10-release-timeline-estimated-costs-and-feature-speculations/"><u>Upcoming Google Pixel 10 - Release Timeline, Estimated Costs & Feature Speculations</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Updated In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-translate-video-from-japanese-to-english-online-for-free/"><u>Updated Translate Video From Japanese to English Online for Free</u></a></li>
 </ul></div>
 

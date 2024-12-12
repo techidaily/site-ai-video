@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2024-12-01T19:08:18.441Z
-updated: 2024-12-06T07:54:37.968Z
+date: 2024-12-10T07:14:07.975Z
+updated: 2024-12-12T09:53:58.739Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,18 +74,24 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-from-boring-to-breathtaking-transforming-podcast-blurbs/"><u>[Updated] From Boring to Breathtaking Transforming Podcast Blurbs</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-disconnected-chapters-to-cohesive-narratives-with-kinemaster/"><u>[Updated] From Disconnected Chapters to Cohesive Narratives with Kinemaster</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-igtv-switch-off-a-comprehensible-guide-for-2024/"><u>[Updated] IGTV Switch-Off A Comprehensible Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-harnessing-the-power-of-youtubes-seo-keywords/"><u>[Updated] In 2024, Harnessing the Power of YouTube's SEO Keywords</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-your-path-to-superior-hdr-imagery/"><u>[Updated] Your Path to Superior HDR Imagery</u></a></li>
-<li><a href="https://ai-video.techidaily.com/capturing-moments-kids-laughter/"><u>Capturing Moments, Kids Laughter</u></a></li>
-<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-tailored-tv-experience-via-social-media-content/"><u>In 2024, Tailored TV Experience via Social Media Content</u></a></li>
-<li><a href="https://ai-video.techidaily.com/innovative-computing-solutions-featured-and-analyzed-by-toms-gurus/"><u>Innovative Computing Solutions Featured and Analyzed by Tom's Gurus</u></a></li>
-<li><a href="https://ai-video.techidaily.com/ryzen-9-powerhouse-in-a-compact-form-the-mini-pc-with-touchscreen-next-level-cpu-and-speedy-ssds/"><u>Ryzen 9 Powerhouse in a Compact Form: The Mini PC with Touchscreen, Next-Level CPU, and Speedy SSDs</u></a></li>
-<li><a href="https://games-able.techidaily.com/score-90-days-of-gaming-bliss-on-xbox-only-36-exclusive-offer-inside/"><u>Score 90 Days of Gaming Bliss on Xbox - Only $36 | Exclusive Offer Inside!</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-tech-review-in-depth-guides-and-gear-insights/"><u>Tom's Tech Review: In-Depth Guides & Gear Insights</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-undercover-approach-to-instagram-stories-on-modern-tech/"><u>[New] 2024 Approved Undercover Approach to Instagram Stories on Modern Tech</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>2024 Approved Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-video-language-changers-to-make-your-videos-accessible/"><u>Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-advice-for-restoring-functionality-in-microsoft-edge-when-it-fails/"><u>Expert Advice for Restoring Functionality in Microsoft Edge When It Fails</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-6-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 6 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-x-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From Apple iPhone X</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-translate-video-from-japanese-to-english-online-for-free/"><u>New Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-mysterious-usb-malfunction-descriptor-request-error-fix/"><u>Resolved: Mysterious USB Malfunction - Descriptor Request Error Fix</u></a></li>
+<li><a href="https://solve-news.techidaily.com/seamless-web-engagement-through-cookiebot-technology-boost-traffic-and-conversions/"><u>Seamless Web Engagement Through Cookiebot Technology – Boost Traffic and Conversions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-best-translator-to-translate-videos-online/"><u>The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-successful-startup-of-gta-5-game-installations/"><u>Troubleshooting Steps for Successful Startup of GTA 5 Game Installations</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/ultimate-guide-to-converting-your-dvd-media-to-mp4-easy-solutions-for-windows-and-mac-users/"><u>Ultimate Guide to Converting Your DVD Media to MP4: Easy Solutions for Windows and Mac Users</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://win-special.techidaily.com/verifying-windows-compatibility-with-your-sound-card-a-guide-by-yl-tech-experts/"><u>Verifying Windows Compatibility with Your Sound Card: A Guide - By YL Tech Experts</u></a></li>
 </ul></div>
 

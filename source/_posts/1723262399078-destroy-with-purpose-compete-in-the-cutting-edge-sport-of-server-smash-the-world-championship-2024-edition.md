@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2024-12-01T23:07:34.083Z
-updated: 2024-12-05T16:38:31.751Z
+date: 2024-12-08T21:54:09.127Z
+updated: 2024-12-11T17:24:19.236Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,20 +60,21 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-building-brand-loyalty-through-emotional-fb-video-storytelling/"><u>[New] 2024 Approved Building Brand Loyalty Through Emotional FB Video Storytelling</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-essential-knowledge-how-io-screen-recorder-works/"><u>[New] 2024 Approved Essential Knowledge How Io Screen Recorder Works</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-metaverse-comedy-the-art-and-science-of-creating-viral-online-laughs/"><u>[New] 2024 Approved Metaverse Comedy The Art & Science of Creating Viral Online Laughs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-tactics-for-avoiding-a-youtube-sanction/"><u>[New] In 2024, Tactics for Avoiding a YouTube Sanction</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unlocking-slow-motion-magic-in-instagram-reels/"><u>[Updated] Unlocking Slow Motion Magic in Instagram Reels</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/asus-unveils-new-nuc-pertplus-model-packing-a-meteor-lake-cpu-core-ultra-5-125h-for-860/"><u>Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860</u></a></li>
-<li><a href="https://ai-video.techidaily.com/fathers-day-special-unleash-your-gameplay-with-the-latest-ibuypower-gaming-desktop/"><u>Father's Day Special: Unleash Your Gameplay with the Latest iBuyPower Gaming Desktop</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-poco-c55-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Poco C55 in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-yts-best-practices-for-choosing-images-that-drive-view-count-updates/"><u>In 2024, YT's Best Practices for Choosing Images That Drive View Count Updates</u></a></li>
-<li><a href="https://ai-video.techidaily.com/insightful-critique-unveiling-the-features-of-philips-wake-up-light-model-hf3505/"><u>Insightful Critique: Unveiling the Features of Philips Wake-Up Light Model HF3505</u></a></li>
-<li><a href="https://ai-video.techidaily.com/reinstate-lost-files-via-winrecovery-center/"><u>Reinstate Lost Files via WinRecovery Center</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-tech-insights-exploring-the-latest-in-hardware/"><u>Tom's Tech Insights: Exploring the Latest in Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-value-pruveeo-f5-1080p-dash-cam-assessment-for-budget-shoppers/"><u>Top Value Pruveeo F5 1080P Dash Cam Assessment for Budget Shoppers</u></a></li>
-<li><a href="https://ai-video.techidaily.com/transform-your-workspace-with-the-small-yet-potent-minisforum-atomman-x7-intel-core-i3-1850u-and-advanced-touch-display-included/"><u>Transform Your Workspace with the Small Yet Potent MinisForum AtomMan X7 - Intel Core I3-1850U & Advanced Touch Display Included</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-capturing-your-iphoneipad-display-now/"><u>[New] 2024 Approved Capturing Your iPhone/iPad Display Now</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-epic-evolutions-digitizing-decades-of-documentary-photographs/"><u>[New] 2024 Approved Epic Evolutions Digitizing Decades of Documentary Photographs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-navigating-screen-capture-in-google-video-conferencing/"><u>[New] In 2024, Navigating Screen Capture in Google Video Conferencing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photobooth-hiccups-resolving-frozen-playback-issues/"><u>[New] Photobooth Hiccups Resolving Frozen Playback Issues</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-raw-to-ready-a-compreenass-guide-to-video-crop-on-instagram/"><u>[Updated] 2024 Approved From Raw to Ready A Compreenas's Guide to Video Crop on Instagram</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-oppo-a78-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo A78 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-11-proplus-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Realme 11 Pro+ Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-illuminating-your-photos-with-iphones-hdr-capabilities/"><u>In 2024, Illuminating Your Photos with iPhone’s HDR Capabilities</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>Updated 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-instagram-videos-for-global-engagement/"><u>Updated 2024 Approved How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-srt-subtitle-translation-tools-and-techniques/"><u>Updated 2024 Approved SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>Updated In 2024, Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>Updated In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
 </ul></div>
 
