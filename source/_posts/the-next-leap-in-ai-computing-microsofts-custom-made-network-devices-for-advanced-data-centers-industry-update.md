@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2024-12-10T07:14:07.975Z
-updated: 2024-12-12T09:53:58.739Z
+date: 2024-12-12T18:43:59.837Z
+updated: 2024-12-18T17:44:06.019Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,18 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-undercover-approach-to-instagram-stories-on-modern-tech/"><u>[New] 2024 Approved Undercover Approach to Instagram Stories on Modern Tech</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>2024 Approved Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-language-changers-to-make-your-videos-accessible/"><u>Best Video Language Changers to Make Your Videos Accessible</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-advice-for-restoring-functionality-in-microsoft-edge-when-it-fails/"><u>Expert Advice for Restoring Functionality in Microsoft Edge When It Fails</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-6-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 6 Apple ID and Apple Pay</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-x-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From Apple iPhone X</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-translate-video-from-japanese-to-english-online-for-free/"><u>New Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-mysterious-usb-malfunction-descriptor-request-error-fix/"><u>Resolved: Mysterious USB Malfunction - Descriptor Request Error Fix</u></a></li>
-<li><a href="https://solve-news.techidaily.com/seamless-web-engagement-through-cookiebot-technology-boost-traffic-and-conversions/"><u>Seamless Web Engagement Through Cookiebot Technology – Boost Traffic and Conversions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-best-translator-to-translate-videos-online/"><u>The Best Translator to Translate Videos Online</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-live-video-making-it-possible-with-the-best-tool/"><u>Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-successful-startup-of-gta-5-game-installations/"><u>Troubleshooting Steps for Successful Startup of GTA 5 Game Installations</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/ultimate-guide-to-converting-your-dvd-media-to-mp4-easy-solutions-for-windows-and-mac-users/"><u>Ultimate Guide to Converting Your DVD Media to MP4: Easy Solutions for Windows and Mac Users</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-video-from-japanese-to-english-online-for-free/"><u>Updated 2024 Approved Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://win-special.techidaily.com/verifying-windows-compatibility-with-your-sound-card-a-guide-by-yl-tech-experts/"><u>Verifying Windows Compatibility with Your Sound Card: A Guide - By YL Tech Experts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-the-world-of-haul-videography-tips-and-tricks-for-2024/"><u>[Updated] Navigating the World of Haul Videography Tips and Tricks for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/movavi-rmvbavi/"><u>換一套新服裝: 利用 Movavi 在線將RMVB文件自由地變成AVI - 最佳無限制編解碼器選擇</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-tool-to-translate-youtube-video-to-arabic/"><u>Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-revolutionizing-web-analytics-and-personalization-for-a-tailored-user-journey/"><u>Cookiebot: Revolutionizing Web Analytics and Personalization for a Tailored User Journey</u></a></li>
+<li><a href="https://driver-download.techidaily.com/getting-started-instructions-to-install-hp-scanning-software-on-windows/"><u>Getting Started: Instructions to Install HP Scanning Software on Windows</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>In 2024, From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/keep-a-permanent-record-fbm-calls-full-recording/"><u>Keep a Permanent Record FBM Calls Full Recording</u></a></li>
+<li><a href="https://ai-video.techidaily.com/translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/troubleshooting-guide-for-non-operational-enterprises-essential-tips-to-get-back-on-track/"><u>Troubleshooting Guide for Non-Operational Enterprises: Essential Tips to Get Back on Track</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
 </ul></div>
 

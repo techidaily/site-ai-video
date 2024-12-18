@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2024-12-11T05:03:46.491Z
-updated: 2024-12-11T22:28:01.314Z
+date: 2024-12-16T17:05:50.500Z
+updated: 2024-12-18T18:24:48.790Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,20 +60,17 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-seamless-synergy-wearable-helps-open-mac-gadgets-for-2024/"><u>[New] Seamless Synergy Wearable Helps Open Mac Gadgets for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb/"><u>[Updated] From Silent Screens to Captivating Media Instantly Create Captions on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-transforming-viewing-habits-with-fb-live-on-roku/"><u>[Updated] In 2024, Transforming Viewing Habits with FB Live on Roku</u></a></li>
-<li><a href="https://extra-information.techidaily.com/engineering-an-emotional-movie-segment/"><u>Engineering an Emotional Movie Segment</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/expert-guide-to-screen-zooming-on-microsoft-teams/"><u>Expert Guide to Screen Zooming on Microsoft Teams</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/how-to-import-and-export-av1-in-adobe-premiere-pro-a-comprehensive-guide/"><u>How to Import and Export AV1 in Adobe Premiere Pro: A Comprehensive Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-nokia-105-classic-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Nokia 105 Classic</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/instrucciones-para-entender-la-hora-en-espanol/"><u>Instrucciones Para Entender La Hora en Español</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://win-able.techidaily.com/no-more-pc-crashes-with-destiny-2s-beyond-light-new-patch-brings-stability/"><u>No More PC Crashes with Destiny ^2'S Beyond Light – New Patch Brings Stability</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-7-online-auto-subtitle-translators-for-content-creators/"><u>Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-10-chinese-video-to-english-translators/"><u>Updated Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-key-steps-for-flawless-audio-segmentation-for-2024/"><u>[New] Key Steps for Flawless Audio Segmentation for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-leading-10-video-editing-programs-for-instagram-reels-enthusiasts/"><u>[New] Leading 10 Video Editing Programs for Instagram Reels Enthusiasts</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-10-chinese-video-to-english-translators/"><u>Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-essentials-crafting-a-compelling-video-slideshow-for-2024/"><u>Final Cut Pro Essentials Crafting a Compelling Video Slideshow for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/how-to-effortlessly-record-screens-on-your-hp-device/"><u>How to Effortlessly Record Screens on Your HP Device</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ipados-18-unveiled-detailed-look-at-its-cost-free-launch-cutting-edge-features-and-latest-updates/"><u>IPadOS 18 Unveiled: Detailed Look at Its Cost-Free Launch, Cutting-Edge Features & Latest Updates</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-solution-to-defenders-error-0x80004004/"><u>Mastering the Solution to Defender’s Error 0X80004004</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>New In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://windows11.techidaily.com/perfect-notetaking-companions-the-7-finest-for-pen-tech/"><u>Perfect Notetaking Companions: The 7 Finest for Pen Tech</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/simplified-speech-to-text-integration-into-visual-content/"><u>Simplified Speech-to-Text Integration Into Visual Content</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>Updated In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
 </ul></div>
 

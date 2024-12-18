@@ -1,7 +1,7 @@
 ---
 title: Dive Into In-Depth Hardware Guides by Tom's Tech Experts
-date: 2024-12-07T10:11:59.902Z
-updated: 2024-12-12T10:36:28.036Z
+date: 2024-12-12T16:56:36.310Z
+updated: 2024-12-18T16:32:45.741Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
  Lastly, the new Legion systems come with a standard 32GB DDR5-5600 dual-channel RAM and 1TB[PCIe Gen4 storage](https://www.tomshardware.com/reviews/best-ssds,3891.html) . Again, upgrades shouldn’t be a problem in the future with SODIMMs presumably used for RAM, and two M.2 slots and two SATA ports available for storage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,20 +66,16 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-recorded-speech-retrieval-and-evaluation/"><u>[New] In 2024, Recorded Speech Retrieval & Evaluation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-compre-written-by-dr-john-smith-phd-in-environmental-science/"><u>[Updated] In 2024, A Compre Written By Dr. John Smith, PhD in Environmental Science</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-automated-calendar-management-for-remote-teams/"><u>[Updated] In 2024, Automated Calendar Management for Remote Teams</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-10-free-video-translators-to-mitigate-translation-risks/"><u>Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-zte-nubia-flip-5g-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your ZTE Nubia Flip 5G Phone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy S23? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mind-your-pennies-a-guide-before-tv-recorder-investment/"><u>Mind Your Pennies: A Guide Before TV Recorder Investment</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New In 2024, A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-translate-live-video-making-it-possible-with-the-best-tool/"><u>New Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://win-hot.techidaily.com/optimale-hyper-v-virtualisierung-exportieren-von-maschinen-mit-schnell-und-leicht/"><u>Optimale Hyper-V-Virtualisierung: Exportieren Von Maschinen Mit Schnell Und Leicht</u></a></li>
-<li><a href="https://ai-video.techidaily.com/ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>Updated 2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated Best Video Translator App for PC You Cannot Miss</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-10-audio-playback-accelerators-for-phones/"><u>[New] 2024 Approved Top 10 Audio Playback Accelerators for Phones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-industrys-largest-uav-payload-carriers/"><u>[Updated] In 2024, Industry's Largest UAV Payload Carriers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-10-tips-and-tricks-to-better-use-pixlr-editor/"><u>2024 Approved 10 Tips and Tricks to Better Use Pixlr Editor</u></a></li>
+<li><a href="https://ai-video.techidaily.com/assessment-and-insights-on-the-fitbit-versa-n-a-wearable-device-catered-to-active-users-with-advanced-smart-features/"><u>Assessment & Insights on the Fitbit Versa N: A Wearable Device Catered to Active Users with Advanced Smart Features</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bypassing-blunders-effective-strategies-to-prevent-errors-while-utilizing-champtgpt/"><u>Bypassing Blunders: Effective Strategies to Prevent Errors While Utilizing ChamptGPT</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/pro-tips-how-to-download-and-backup-images-within-your-microsoft-word-documents/"><u>Pro Tips: How to Download and Backup Images Within Your Microsoft Word Documents</u></a></li>
+<li><a href="https://ai-video.techidaily.com/strategies-for-ensuring-ethical-use-of-ai-like-chatgpt-as-a-supportive-mental-health-tool/"><u>Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/supercharge-your-design-with-these-canva-insider-tips/"><u>Supercharge Your Design with These Canva Insider Tips</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unleash-collaborative-power-in-virtual-settings-the-top-10-free-recorders-for-2024/"><u>Unleash Collaborative Power in Virtual Settings - The Top 10 Free Recorders for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/unveiling-the-asus-nuc-14-ultra9-cpu-power-meets-top-tier-gaming-performance-with-rtx-4070-gpu/"><u>Unveiling the Asus NUC 14 — Ultra9 CPU Power Meets Top-Tier Gaming Performance with RTX 4070 GPU</u></a></li>
 </ul></div>
 

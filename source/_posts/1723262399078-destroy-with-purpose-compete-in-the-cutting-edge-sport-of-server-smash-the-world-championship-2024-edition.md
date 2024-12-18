@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2024-12-08T21:54:09.127Z
-updated: 2024-12-11T17:24:19.236Z
+date: 2024-12-11T20:34:33.120Z
+updated: 2024-12-18T21:16:46.352Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,21 +60,18 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-capturing-your-iphoneipad-display-now/"><u>[New] 2024 Approved Capturing Your iPhone/iPad Display Now</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-epic-evolutions-digitizing-decades-of-documentary-photographs/"><u>[New] 2024 Approved Epic Evolutions Digitizing Decades of Documentary Photographs</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-navigating-screen-capture-in-google-video-conferencing/"><u>[New] In 2024, Navigating Screen Capture in Google Video Conferencing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-photobooth-hiccups-resolving-frozen-playback-issues/"><u>[New] Photobooth Hiccups Resolving Frozen Playback Issues</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-raw-to-ready-a-compreenass-guide-to-video-crop-on-instagram/"><u>[Updated] 2024 Approved From Raw to Ready A Compreenas's Guide to Video Crop on Instagram</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Vivo Y78+ | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-oppo-a78-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo A78 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-11-proplus-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Realme 11 Pro+ Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-illuminating-your-photos-with-iphones-hdr-capabilities/"><u>In 2024, Illuminating Your Photos with iPhone’s HDR Capabilities</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>New 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>Updated 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-instagram-videos-for-global-engagement/"><u>Updated 2024 Approved How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-srt-subtitle-translation-tools-and-techniques/"><u>Updated 2024 Approved SRT Subtitle Translation Tools and Techniques</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>Updated In 2024, Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-video-from-japanese-to-english-online-for-free/"><u>Updated In 2024, Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-maximize-collaboration-via-zooms-share-feature/"><u>[New] In 2024, Maximize Collaboration via Zoom's Share Feature</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-intenseflame-screen-recorders-for-2024/"><u>[New] IntenseFlame Screen Recorders for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-chill-challenge-highlighting-the-speed-and-skill-of-winter-olympics-x-c-skiers/"><u>[Updated] Chill Challenge Highlighting the Speed and Skill of Winter Olympics X-C Skiers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-instagram-engage-obs-live-streaming/"><u>[Updated] In 2024, Instagram Engage OBS Live Streaming</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-razer-kiyo-webcam-detailed-review-for-2024/"><u>[Updated] Razer Kiyo Webcam - Detailed Review for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-iphone-time-lapse-101-minimizing-wait-times/"><u>2024 Approved IPhone Time Lapse 101 Minimizing Wait Times</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/apple-discontinues-high-end-weave-collection-in-favor-of-partnering-with-beats-for-new-case-series/"><u>Apple Discontinues High-End Weave Collection in Favor of Partnering with Beats for New Case Series</u></a></li>
+<li><a href="https://win-forum.techidaily.com/grabar-audios-con-windows-11-and-mac-de-forma-gratuita/"><u>Grabar Audios Con Windows 11 & Mac De Forma Gratuita</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-any-hindi-video-into-english-with-ai/"><u>In 2024, Translate Any Hindi Video Into English With AI</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated 2024 Approved Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
 </ul></div>
 
