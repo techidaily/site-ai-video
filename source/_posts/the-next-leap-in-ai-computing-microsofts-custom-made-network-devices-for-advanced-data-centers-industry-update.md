@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2024-12-12T18:43:59.837Z
-updated: 2024-12-18T17:44:06.019Z
+date: 2024-12-24T19:25:07.553Z
+updated: 2024-12-26T17:30:32.086Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,18 +74,22 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-navigating-the-world-of-haul-videography-tips-and-tricks-for-2024/"><u>[Updated] Navigating the World of Haul Videography Tips and Tricks for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-auto-translate-youtube-videos-into-different-languages/"><u>2024 Approved How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/movavi-rmvbavi/"><u>換一套新服裝: 利用 Movavi 在線將RMVB文件自由地變成AVI - 最佳無限制編解碼器選擇</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-tool-to-translate-youtube-video-to-arabic/"><u>Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-revolutionizing-web-analytics-and-personalization-for-a-tailored-user-journey/"><u>Cookiebot: Revolutionizing Web Analytics and Personalization for a Tailored User Journey</u></a></li>
-<li><a href="https://driver-download.techidaily.com/getting-started-instructions-to-install-hp-scanning-software-on-windows/"><u>Getting Started: Instructions to Install HP Scanning Software on Windows</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>In 2024, From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/keep-a-permanent-record-fbm-calls-full-recording/"><u>Keep a Permanent Record FBM Calls Full Recording</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/troubleshooting-guide-for-non-operational-enterprises-essential-tips-to-get-back-on-track/"><u>Troubleshooting Guide for Non-Operational Enterprises: Essential Tips to Get Back on Track</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-masterful-media-panels-ideal-screens-for-editors/"><u>[New] 2024 Approved Masterful Media Panels Ideal Screens for Editors</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>2024 Approved Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-brief-review-of-capcut-translate-with-alternative/"><u>A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/comment-faire-disparaitre-en-deux-clics-les-blocages-de-windows-10-techniques-pratiques-pour-4-scenarios/"><u>Comment Faire Disparaître en Deux Clics Les Blocages De Windows 10 : Techniques Pratiques Pour 4 Scénarios</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-epson-wf-ds30-ready-compatible-drivers-for-windows-1187-users/"><u>Get Your Epson WF-DS30 Ready: Compatible Drivers for Windows 11/8/7 Users</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exciting-vr-technologies-shaping-gaming/"><u>In 2024, Exciting VR Technologies Shaping Gaming</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-professional-filmmaking-made-simple-phones-with-advanced-ois-features/"><u>In 2024, Professional Filmmaking Made Simple Phones With Advanced OIS Features</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>New 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-live-from-your-videos-best-apps-and-guides-for-conversion/"><u>New 2024 Approved Live From Your Videos Best Apps and Guides for Conversion</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-oppo-reno-8t-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Oppo Reno 8T Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-guide-to-voice-changes-without-financial-investment/"><u>The Ultimate Guide to Voice Changes Without Financial Investment</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-power-of-the-ipad-pro-a-distinctive-tech-marvel-beyond-the-macbook-in-depth-analysis-by-zdnet/"><u>Unveiling the Power of the IPad Pro – A Distinctive Tech Marvel Beyond the MacBook | In-Depth Analysis by ZDNET</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-7-best-real-time-video-translation-apps/"><u>Updated 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated Best Tool to Translate YouTube Video to Arabic</u></a></li>
 </ul></div>
 

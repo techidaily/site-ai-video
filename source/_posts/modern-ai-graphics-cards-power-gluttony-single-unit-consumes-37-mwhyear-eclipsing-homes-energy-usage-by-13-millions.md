@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2024-12-13T16:37:29.831Z
-updated: 2024-12-18T16:21:55.003Z
+date: 2024-12-26T08:51:33.446Z
+updated: 2024-12-27T10:19:14.308Z
 tags:
   - desktop
 categories:
@@ -16,7 +16,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
@@ -41,7 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -67,18 +67,20 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-answers.techidaily.com/solved-league-of-legends-crashing-quickly-and-easily/"><u>[SOLVED] | League of Legends Crashing | Quickly & Easily</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-high-end-downloads-best-10-apps-for-extracting-vimeo-videos/"><u>[Updated] 2024 Approved High-End Downloads Best 10 Apps for Extracting Vimeo Videos</u></a></li>
-<li><a href="https://win-premium.techidaily.com/aomei-backupper-localization-tutorial-changing-interface-language-settings/"><u>AOMEI Backupper Localization Tutorial - Changing Interface Language Settings</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/artificial-intelligence-frame-interpolation-boosting-fps-and-seamless-transitions/"><u>Artificial Intelligence Frame Interpolation: Boosting FPS and Seamless Transitions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/capturing-moments-kids-laughter/"><u>Capturing Moments, Kids Laughter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/discovering-high-performance-tech-a-deep-dive-on-toms-hardware/"><u>Discovering High-Performance Tech: A Deep Dive on Tom's Hardware</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhancing-efficiency-the-key-to-srt-export-in-premiere/"><u>Enhancing Efficiency The Key to SRT Export in Premiere</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-vivo-y27-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Vivo Y27 5G Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/slim-pocket-puppy-monitoring-pros/"><u>Slim-Pocket Puppy Monitoring Pros</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-next-leap-in-ai-computing-microsofts-custom-made-network-devices-for-advanced-data-centers-industry-update/"><u>The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-tech-review-in-depth-guides-and-gear-insights/"><u>Tom's Tech Review: In-Depth Guides & Gear Insights</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-versatile-notebooks-unveiled-exceptional-hardware-combined-with-popular-appeal-featured-in-zdnets-latest-tech-analysis/"><u>Top Versatile Notebooks Unveiled: Exceptional Hardware Combined with Popular Appeal, Featured in ZDNet's Latest Tech Analysis</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-tips-for-uncrashing-w10-photos-app-for-2024/"><u>[New] Essential Tips for Uncrashing W10 Photos App for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-process-high-dynamic-range-hdr-portraiture/"><u>[New] In 2024, Step-by-Step Process High Dynamic Range (HDR) Portraiture</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unlock-zoom-broadcasting-potential-for-youtube-success/"><u>[New] In 2024, Unlock Zoom Broadcasting Potential for YouTube Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-unveiling-the-process-of-obs-installation-on-apple-devices-for-2024/"><u>[New] Unveiling the Process of OBS Installation on Apple Devices for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-capturing-the-thrill-hero5-black-against-hero4-silver/"><u>2024 Approved Capturing the Thrill Hero5 Black Against Hero4 Silver</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-for-free-video-translator-downloading/"><u>A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-translate-youtube-videos-to-english-subtitles/"><u>New How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-0xa00f429f-error-in-microsoft-windows-cameras/"><u>Overcoming 0xA00F429F Error in Microsoft Windows Cameras</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/premier-slow-motion-capture-apps-androidios-devices/"><u>Premier Slow Motion Capture Apps Android/iOS Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-nikon-bridge-camera-falls-short-review-reveals/"><u>The Nikon Bridge Camera Falls Short, Review Reveals</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2024-12-17T21:00:04.996Z
-updated: 2024-12-18T20:51:33.032Z
+date: 2024-12-24T02:51:41.123Z
+updated: 2024-12-26T20:24:26.354Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,24 +89,24 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube-for-2024/"><u>[New] A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unlocking-the-secrets-to-superior-gaming-on-android-with-kinemaster/"><u>[New] Unlocking the Secrets to Superior Gaming on Android With KineMaster</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-your-path-forward-on-youtube-self-publishing-vs-major-label-partnership/"><u>[New] Your Path Forward on YouTube Self-Publishing vs Major Label Partnership</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-clickable-content-climber-software/"><u>2024 Approved Clickable Content Climber Software</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-use-korean-to-english-video-translators-for-creators/"><u>2024 Approved How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-9-choices-for-video-auto-translate/"><u>2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss/"><u>Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://win-able.techidaily.com/chivalry-ii-game-crash-issue-resolved-enhancing-your-gaming-experience/"><u>Chivalry II Game-Crash Issue Resolved: Enhancing Your Gaming Experience</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/essential-steps-to-enhance-your-pcs-security-expert-advice-from-yl-computing/"><u>Essential Steps to Enhance Your PC's Security - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/get-rid-of-pc-crashes-in-dauntless-with-these-effective-solutions/"><u>Get Rid of PC Crashes in Dauntless with These Effective Solutions</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-unlock-high-quality-video-playback-with-av1-on-youtube/"><u>In 2024, Unlock High-Quality Video Playback with AV1 on YouTube</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-any-hindi-video-into-english-with-ai/"><u>Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>Updated In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/winning-tv-recorder-strategies-no-cost-no-hassle-for-2024/"><u>Winning TV Recorder Strategies (No-Cost, No Hassle) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-is-it-legal-to-screen-record-youtube-videos/"><u>[New] In 2024, Is It Legal to Screen Record YouTube Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-total-gaze-field-vr-device-overview/"><u>[New] Total Gaze Field VR Device Overview</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-technique-downloading-tweet-videos-to-your-phone/"><u>[Updated] Quick Technique Downloading Tweet Videos to Your Phone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-17-portable-powerhouses-the-leading-laptops-for-202/"><u>Elite 17 Portable Powerhouses: The Leading Laptops for 202</u></a></li>
+<li><a href="https://network-issues.techidaily.com/ending-buffering-issues-win11-streams-now-fluid/"><u>Ending Buffering Issues: Win11 Streams Now Fluid</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/guide-to-decrypting-and-converting-encoded-dvd-movies-for-optimal-viewing-on-your-hdtv/"><u>Guide to Decrypting and Converting Encoded DVD Movies for Optimal Viewing on Your HDTV</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/handling-chatgpts-review-system-failures-techniques-to-ensure-smooth-operation/"><u>Handling ChatGPT's Review System Failures: Techniques to Ensure Smooth Operation</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-oneplus-ace-2-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your OnePlus Ace 2 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-srt-subtitle-translation-tools-and-techniques/"><u>New 2024 Approved SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-top-9-choices-for-video-auto-translate/"><u>New Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/step-by-step-guide-enabling-file-history-feature-on-windows-11-tips-from-yl-computing/"><u>Step-by-Step Guide: Enabling File History Feature on Windows 11 - Tips From YL Computing</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>Updated 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-instagram-videos-for-global-engagement/"><u>Updated How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-10-chinese-video-to-english-translators/"><u>Updated In 2024, Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-honor-x8b-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Honor X8b? Here is How | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2024-12-16T17:05:50.500Z
-updated: 2024-12-18T18:24:48.790Z
+date: 2024-12-24T10:12:40.697Z
+updated: 2024-12-27T02:27:29.005Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,17 +60,17 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-key-steps-for-flawless-audio-segmentation-for-2024/"><u>[New] Key Steps for Flawless Audio Segmentation for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-leading-10-video-editing-programs-for-instagram-reels-enthusiasts/"><u>[New] Leading 10 Video Editing Programs for Instagram Reels Enthusiasts</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-10-chinese-video-to-english-translators/"><u>Best 10 Chinese Video to English Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-essentials-crafting-a-compelling-video-slideshow-for-2024/"><u>Final Cut Pro Essentials Crafting a Compelling Video Slideshow for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/how-to-effortlessly-record-screens-on-your-hp-device/"><u>How to Effortlessly Record Screens on Your HP Device</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ipados-18-unveiled-detailed-look-at-its-cost-free-launch-cutting-edge-features-and-latest-updates/"><u>IPadOS 18 Unveiled: Detailed Look at Its Cost-Free Launch, Cutting-Edge Features & Latest Updates</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-the-solution-to-defenders-error-0x80004004/"><u>Mastering the Solution to Defender’s Error 0X80004004</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>New In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://windows11.techidaily.com/perfect-notetaking-companions-the-7-finest-for-pen-tech/"><u>Perfect Notetaking Companions: The 7 Finest for Pen Tech</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/simplified-speech-to-text-integration-into-visual-content/"><u>Simplified Speech-to-Text Integration Into Visual Content</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>Updated In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>[New] How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-masters-in-virtual-enclosure-devices-for-2024/"><u>[New] Masters in Virtual Enclosure Devices for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-push-the-boundaries-of-snapchat-choose-from-these-best-edits-for-2024/"><u>[Updated] Push the Boundaries of Snapchat Choose From These Best Edits for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-palworld-login-errors-on-ethereums-blockchain-discover-these-6-strategies/"><u>Fixing Palworld Login Errors on Ethereum's Blockchain - Discover These 6 Strategies</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/how-to-verify-and-adjust-your-computers-sound-card-for-proper-speaker-setup-yl-software-solutions/"><u>How to Verify and Adjust Your Computer's Sound Card for Proper Speaker Setup - YL Software Solutions</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/mit-iphone-auf-iphone-wechseln-lernen-sie-wie-sie-ihre-daten-drahtlos-ohne-itunes-kopieren-konnen/"><u>Mit iPhone Auf iPhone Wechseln? Lernen Sie, Wie Sie Ihre Daten Drahtlos Ohne iTunes Kopieren Können.</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-a-brief-review-of-capcut-translate-with-alternative/"><u>New A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>New In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-unlocking-global-audiences-top-video-language-converters/"><u>New Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-c110-by-fonelab-android-recover-messages/"><u>Undelete lost messages from C110</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
 </ul></div>
 
