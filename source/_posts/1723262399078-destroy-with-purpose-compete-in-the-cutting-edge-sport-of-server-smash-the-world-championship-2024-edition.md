@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2024-12-19T21:24:13.441Z
-updated: 2024-12-27T05:44:14.148Z
+date: 2024-12-30T17:59:41.390Z
+updated: 2025-01-05T17:30:01.116Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,20 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-your-game-library-the-finest-pc-based-gba-emulation-tools-for-2024/"><u>[New] Mastering Your Game Library The Finest PC-Based GBA Emulation Tools for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-depth-tutorials-on-documenting-ps3-gaming-sessions-for-2024/"><u>[Updated] In-Depth Tutorials on Documenting PS3 Gaming Sessions for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-guide-to-audio-acquisition-iphoneipad-edition/"><u>[Updated] The Ultimate Guide to Audio Acquisition IPhone/iPad Edition</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/find-the-best-last-chance-deals-under-1000-laptops-at-costco-amazon-and-dell-this-holiday-season-zdnet/"><u>Find the Best Last Chance Deals: Under $1000 Laptops at Costco, Amazon, and Dell This Holiday Season | ZDNET</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-put-iphone-12-pro-or-ipad-on-recovery-mode-step-by-step-tutorial-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Put iPhone 12 Pro or iPad on Recovery mode? (Step by Step Tutorial) | Stellar</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>In 2024, Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-footage-select-best-gimbals-and-handhelds-guide-for-2024/"><u>Mastering Footage Select Best Gimbals & Handhelds Guide for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-fix-for-stop-0x0000005c-boot-issues-in-windows/"><u>Mastering the Fix for STOP 0X0000005C Boot Issues in Windows</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solving-non-assigned-file-programs-in-windows-os/"><u>Solving Non-Assigned File Programs in Windows OS</u></a></li>
-<li><a href="https://win-bits.techidaily.com/top-3-optimal-programs-for-retrieving-lost-files-from-external-storage-devices/"><u>Top 3 Optimal Programs for Retrieving Lost Files From External Storage Devices</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Updated 2024 Approved Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Updated In 2024, Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premium-360-camera-options-for-social-media-broadcasts/"><u>[New] Premium 360° Camera Options for Social Media Broadcasts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-high-quality-video-grabs-by-leading-software/"><u>[Updated] 2024 Approved High Quality Video Grabs by Leading Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-windows-cutting-tools-for-editors-and-vids-for-2024/"><u>[Updated] Top Windows Cutting Tools for Editors & Vids for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-7-best-real-time-video-translation-apps/"><u>2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-a-brief-review-of-capcut-translate-with-alternative/"><u>2024 Approved A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-turning-horizons-into-heights-uploading-videos-to-igtv/"><u>2024 Approved Turning Horizons Into Heights Uploading Videos to IGTV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vg245h-24-inch-monitor-review/"><u>Asus VG245H 24-Inch Monitor Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-high-speed-networking-an-in-depth-look-at-the-tp-link-archer-a6-ac1200-router-review/"><u>Budget-Friendly High-Speed Networking: An In-Depth Look at the TP-Link Archer A6 AC1200 Router Review</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/fortifying-your-digital-life-a-step-by-step-guide-to-achieving-impervious-computer-safety-through-multi-tier-security/"><u>Fortifying Your Digital Life: A Step-by-Step Guide to Achieving Impervious Computer Safety Through Multi-Tier Security</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New 2024 Approved Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 2024 Approved 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-avs-video-editor-2023-is-it-worth-the-hype-for-2024/"><u>Updated AVS Video Editor 2023 Is It Worth the Hype for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>Updated How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated In 2024, Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Updated Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Apple iPhone 6 Plus | Dr.fone</u></a></li>
 </ul></div>
 

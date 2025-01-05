@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2024-12-24T10:12:40.697Z
-updated: 2024-12-27T02:27:29.005Z
+date: 2024-12-29T19:48:50.550Z
+updated: 2025-01-05T18:01:50.496Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,17 +60,19 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>[New] How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-masters-in-virtual-enclosure-devices-for-2024/"><u>[New] Masters in Virtual Enclosure Devices for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-push-the-boundaries-of-snapchat-choose-from-these-best-edits-for-2024/"><u>[Updated] Push the Boundaries of Snapchat Choose From These Best Edits for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-palworld-login-errors-on-ethereums-blockchain-discover-these-6-strategies/"><u>Fixing Palworld Login Errors on Ethereum's Blockchain - Discover These 6 Strategies</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/how-to-verify-and-adjust-your-computers-sound-card-for-proper-speaker-setup-yl-software-solutions/"><u>How to Verify and Adjust Your Computer's Sound Card for Proper Speaker Setup - YL Software Solutions</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/mit-iphone-auf-iphone-wechseln-lernen-sie-wie-sie-ihre-daten-drahtlos-ohne-itunes-kopieren-konnen/"><u>Mit iPhone Auf iPhone Wechseln? Lernen Sie, Wie Sie Ihre Daten Drahtlos Ohne iTunes Kopieren Können.</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-brief-review-of-capcut-translate-with-alternative/"><u>New A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>New In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-unlocking-global-audiences-top-video-language-converters/"><u>New Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-messages-from-c110-by-fonelab-android-recover-messages/"><u>Undelete lost messages from C110</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-png-alterations-guide/"><u>[Updated] 2024 Approved Ultimate PNG Alterations Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-chromes-video-performance-boost-for-social-media/"><u>[Updated] In 2024, Chrome's Video Performance Boost for Social Media</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-recollect-rivals-mobile-battlegrounds-in-samsungs/"><u>[Updated] In 2024, Recollect Rivals Mobile Battlegrounds in Samsungs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-achieving-youtube-earnings-excellence-strategies-and-beyond/"><u>2024 Approved Achieving YouTube Earnings Excellence - Strategies and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-use-korean-to-english-video-translators-for-creators/"><u>How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-excellence-on-screen-the-years-best-camcorders-reviewed/"><u>In 2024, Excellence on Screen The Year's Best Camcorders Reviewed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/keep-up-the-pace-in-snapchat-streaks-with-these-tips/"><u>Keep Up the Pace in Snapchat Streaks with These Tips</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>New 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/professionals-pick-alert-acquire-apples-lowest-cost-m3-macbook-pro-for-this-one-compelling-reason-only-discover-inside/"><u>Professional's Pick Alert: Acquire Apple's Lowest Cost M3 MacBook Pro for This One Compelling Reason Only - Discover Inside!</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/see-every-angle-in-water-clarity-with-insta360-x2-review/"><u>See Every Angle in Water Clarity with Insta360 X2 Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-find-x7-ultras-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo Find X7 Ultras Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
 </ul></div>
 
