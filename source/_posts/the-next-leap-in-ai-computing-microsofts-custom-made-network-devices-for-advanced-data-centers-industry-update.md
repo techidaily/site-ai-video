@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2025-01-03T17:58:01.900Z
-updated: 2025-01-05T21:39:11.833Z
+date: 2025-01-05T08:07:02.167Z
+updated: 2025-01-11T20:22:05.982Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,21 +74,19 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hing-dark-pixels-from-youtube-views/"><u>Banishing Dark Pixels From YouTube Views</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-elite-selection-of-tv-streaming-services-for-2econd-quarter-2024/"><u>Discover the Elite Selection of TV Streaming Services for 2Econd Quarter, 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-unparalleled-quality-of-pixel-buds-pro-a-game-changing-feature-sets-a-new-standard-for-wireless-audio-gadgetguru-blog/"><u>Discover the Unparalleled Quality of Pixel Buds Pro - A Game-Changing Feature Sets a New Standard for Wireless Audio | GadgetGuru Blog</u></a></li>
-<li><a href="https://ai-video.techidaily.com/easy-steps-to-translate-video-on-twitter/"><u>Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-vivo-g2-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo G2 Lock Screen Password</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Motorola Moto G34 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-the-best-translator-to-translate-videos-online/"><u>In 2024, The Best Translator to Translate Videos Online</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-14-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 14 Is Unlocked</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/no-need-for-a-previous-copy-expert-guide-on-retrieving-iphone-information-without-backups/"><u>No Need for a Previous Copy: Expert Guide on Retrieving iPhone Information Without Backups</u></a></li>
-<li><a href="https://techtrends.techidaily.com/smartwatch-101-comprehensive-guide-to-their-uses-and-benefits/"><u>Smartwatch 101: Comprehensive Guide to Their Uses & Benefits</u></a></li>
-<li><a href="https://ai-video.techidaily.com/translate-video-from-japanese-to-english-online-for-free/"><u>Translate Video From Japanese to English Online for Free</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unlocking-potential-with-instagram-videos-strategic-planning-insights/"><u>[New] In 2024, Unlocking Potential with Instagram Videos Strategic Planning Insights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-essentialists-guide-to-archiving-ps3-gameplay-moments/"><u>[Updated] In 2024, The Essentialist's Guide to Archiving PS3 Gameplay Moments</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-nubia-z50s-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Nubia Z50S Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-edit-on-the-go-best-android-video-editor-apps-for-chromebooks/"><u>New 2024 Approved Edit on the Go Best Android Video Editor Apps for Chromebooks</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-instagram-videos-for-global-engagement/"><u>New 2024 Approved How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-outdoor-adventures-with-romers-high-performance-rechargeable-spotlight/"><u>Revolutionize Your Outdoor Adventures with Romer's High-Performance Rechargeable Spotlight</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-on-transforming-videos-into-various-compatible-formats/"><u>Step-by-Step Tutorial on Transforming Videos Into Various Compatible Formats</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unparalleled-portability-meets-multifunctionality-an-in-depth-review-of-a-compact-powerhouse-chromebook-zdnet/"><u>Unparalleled Portability Meets Multifunctionality: An In-Depth Review of a Compact Powerhouse Chromebook - ZDNet</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated 2024 Approved How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated 2024 Approved The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated 2024 Approved Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-7-online-auto-subtitle-translators-for-content-creators/"><u>Updated Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
 </ul></div>
 

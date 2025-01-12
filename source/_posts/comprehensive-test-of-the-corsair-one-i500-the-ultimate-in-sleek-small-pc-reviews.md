@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2024-12-29T19:48:50.550Z
-updated: 2025-01-05T18:01:50.496Z
+date: 2025-01-05T13:00:52.209Z
+updated: 2025-01-12T02:28:20.724Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,19 +60,19 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-png-alterations-guide/"><u>[Updated] 2024 Approved Ultimate PNG Alterations Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-chromes-video-performance-boost-for-social-media/"><u>[Updated] In 2024, Chrome's Video Performance Boost for Social Media</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-recollect-rivals-mobile-battlegrounds-in-samsungs/"><u>[Updated] In 2024, Recollect Rivals Mobile Battlegrounds in Samsungs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-achieving-youtube-earnings-excellence-strategies-and-beyond/"><u>2024 Approved Achieving YouTube Earnings Excellence - Strategies and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-use-korean-to-english-video-translators-for-creators/"><u>How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-excellence-on-screen-the-years-best-camcorders-reviewed/"><u>In 2024, Excellence on Screen The Year's Best Camcorders Reviewed</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/keep-up-the-pace-in-snapchat-streaks-with-these-tips/"><u>Keep Up the Pace in Snapchat Streaks with These Tips</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>New 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/professionals-pick-alert-acquire-apples-lowest-cost-m3-macbook-pro-for-this-one-compelling-reason-only-discover-inside/"><u>Professional's Pick Alert: Acquire Apple's Lowest Cost M3 MacBook Pro for This One Compelling Reason Only - Discover Inside!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/see-every-angle-in-water-clarity-with-insta360-x2-review/"><u>See Every Angle in Water Clarity with Insta360 X2 Review</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-find-x7-ultras-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo Find X7 Ultras Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-fundamentals-of-vimeo-video-logging/"><u>[New] 2024 Approved The Fundamentals of Vimeo Video Logging</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tailored-thumbnail-for-social-media-vids/"><u>[Updated] 2024 Approved Tailored Thumbnail for Social Media Vids</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-cutting-edge-creativity-high-quality-ae-samples-without-fee/"><u>[Updated] In 2024, Cutting-Edge Creativity High-Quality AE Samples Without Fee</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-minuscule-marvels-a-comprehensive-review-of-dji-sparks-capabilities/"><u>2024 Approved Navigating Minuscule Marvels A Comprehensive Review of DJI Spark's Capabilities</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>2024 Approved The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/brother-mfc-l2700dw-driver-download-and-install-for-windows/"><u>Brother MFC-L2700DW Driver Download & Install for Windows</u></a></li>
+<li><a href="https://fox-access.techidaily.com/clear-sight-steady-shot-fighting-the-mist-in-your-footage-for-2024/"><u>Clear Sight, Steady Shot Fighting the Mist in Your Footage for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/step-by-step-tutorial-restoring-deleted-yahoo-mail-with-minimal-effort/"><u>Step-by-Step Tutorial: Restoring Deleted Yahoo Mail with Minimal Effort</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-magic-of-apples-ar-glasses-enthusiastic-insights-into-a-future-of-wearable-tech/"><u>Unveiling the Magic of Apple's AR Glasses: Enthusiastic Insights Into a Future of Wearable Tech</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>Updated In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
 </ul></div>
 
