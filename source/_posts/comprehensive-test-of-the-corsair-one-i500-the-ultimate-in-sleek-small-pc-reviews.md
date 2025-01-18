@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2025-01-05T13:00:52.209Z
-updated: 2025-01-12T02:28:20.724Z
+date: 2025-01-15T04:32:51.085Z
+updated: 2025-01-17T19:26:42.380Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,19 +60,18 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-fundamentals-of-vimeo-video-logging/"><u>[New] 2024 Approved The Fundamentals of Vimeo Video Logging</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tailored-thumbnail-for-social-media-vids/"><u>[Updated] 2024 Approved Tailored Thumbnail for Social Media Vids</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-cutting-edge-creativity-high-quality-ae-samples-without-fee/"><u>[Updated] In 2024, Cutting-Edge Creativity High-Quality AE Samples Without Fee</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-minuscule-marvels-a-comprehensive-review-of-dji-sparks-capabilities/"><u>2024 Approved Navigating Minuscule Marvels A Comprehensive Review of DJI Spark's Capabilities</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>2024 Approved The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-10-hindi-video-translators-with-step-by-step-guidance/"><u>Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/brother-mfc-l2700dw-driver-download-and-install-for-windows/"><u>Brother MFC-L2700DW Driver Download & Install for Windows</u></a></li>
-<li><a href="https://fox-access.techidaily.com/clear-sight-steady-shot-fighting-the-mist-in-your-footage-for-2024/"><u>Clear Sight, Steady Shot Fighting the Mist in Your Footage for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/step-by-step-tutorial-restoring-deleted-yahoo-mail-with-minimal-effort/"><u>Step-by-Step Tutorial: Restoring Deleted Yahoo Mail with Minimal Effort</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unveiling-the-magic-of-apples-ar-glasses-enthusiastic-insights-into-a-future-of-wearable-tech/"><u>Unveiling the Magic of Apple's AR Glasses: Enthusiastic Insights Into a Future of Wearable Tech</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>Updated 2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>Updated In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-extensive-review-the-360-degree-capture-of-samsung-for-2024/"><u>[New] Extensive Review The 360-Degree Capture of Samsung for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-3-ways-to-record-lectures-on-mac-for-2024/"><u>[Updated] 3 Ways to Record Lectures on Mac for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>2024 Approved From Novice to Expert Mastering Movie Maker in Windows 8 Systems</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262399078-destroy-with-purpose-compete-in-the-cutting-edge-sport-of-server-smash-the-world-championship-2024-edition/"><u>Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition</u></a></li>
+<li><a href="https://driver-install.techidaily.com/dissecting-windows-2000s-wan-port-mysteries/"><u>Dissecting Windows 2000'S WAN Port Mysteries</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experts-guide-to-laptop-screenrecord-software-for-2024/"><u>Expert's Guide to Laptop ScreenRecord Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-cinema-scenes-to-speaking-scenes-discovering-the-top-32-tools-for-video-translation/"><u>From Cinema Scenes to Speaking Scenes Discovering the Top 32 Tools for Video Translation</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-oppo-a79-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/introducing-the-geekom-ax8-your-new-workhorse-with-advanced-intel-13th-gen-and-latest-amd-ryzen-cpus/"><u>Introducing the Geekom AX8 - Your New Workhorse with Advanced Intel 13Th Gen and Latest AMD Ryzen CPUs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/openai-loses-its-grip-on-gpt/"><u>OpenAI Loses Its Grip on GPT</u></a></li>
+<li><a href="https://ai-video.techidaily.com/slim-pocket-puppy-monitoring-pros/"><u>Slim-Pocket Puppy Monitoring Pros</u></a></li>
+<li><a href="https://ai-video.techidaily.com/the-next-leap-in-ai-computing-microsofts-custom-made-network-devices-for-advanced-data-centers-industry-update/"><u>The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
 </ul></div>
 

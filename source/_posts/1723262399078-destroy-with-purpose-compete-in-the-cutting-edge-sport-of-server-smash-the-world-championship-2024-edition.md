@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2025-01-08T02:41:50.792Z
-updated: 2025-01-11T23:46:50.449Z
+date: 2025-01-12T20:16:16.208Z
+updated: 2025-01-17T21:32:41.244Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,19 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-live-transmission-directly-to-instagram-via-obs/"><u>[Updated] 2024 Approved Live Transmission Directly to Instagram via OBS</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-quality-streaming-balancing-webcam-and-gaming-recordings/"><u>[Updated] 2024 Approved Quality Streaming Balancing Webcam & Gaming Recordings</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-x-voice-capture-software-pc/"><u>[Updated] In 2024, X-Voice Capture Software, PC</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-best-video-translator-app-for-pc-you-cannot-miss/"><u>2024 Approved Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-9-choices-for-video-auto-translate/"><u>2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://ai-video.techidaily.com/best-video-translator-app-for-pc-you-cannot-miss/"><u>Best Video Translator App for PC You Cannot Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exquisite-airplay-scripts-for-listeners/"><u>In 2024, Exquisite Airplay Scripts for Listeners</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-pc-performance-5-ways-to-reduce-steams-memory-usage/"><u>Mastering PC Performance: 5 Ways to Reduce Steam's Memory Usage</u></a></li>
-<li><a href="https://games-able.techidaily.com/optimizing-input-transfer-a-stepwise-guide-to-using-barriers-for-sharing/"><u>Optimizing Input Transfer: A Stepwise Guide to Using Barriers for Sharing</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated 2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-discover-the-new-era-of-photography-with-toolwiz-comprehensive-2023-reviews/"><u>[New] 2024 Approved Discover the New Era of Photography with Toolwiz Comprehensive 2023 Reviews</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-amateurs-to-experts-a-complete-guide-to-instagram-covers-for-2024/"><u>[Updated] From Amateurs to Experts A Complete Guide to Instagram Covers for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-going-against-gravity-innovative-ways-to-rewind-youtube-content/"><u>[Updated] In 2024, Going Against Gravity Innovative Ways to Rewind YouTube Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-professional-mobile-devices-for-content-creators/"><u>[Updated] Professional Mobile Devices for Content Creators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experts-unveil-the-strengths-and-features-of-linksys-velop-mesh-router-system/"><u>Experts Unveil the Strengths and Features of Linksys Velop Mesh Router System</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-xiaomi-civi-3-disney-100th-anniversary-edition-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Xiaomi Civi 3 Disney 100th Anniversary Edition to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-9-best-french-video-translators-online-and-download-options/"><u>In 2024, 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>In 2024, A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-srt-subtitle-translation-tools-and-techniques/"><u>In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-art-of-choosing-perfect-thumbnails/"><u>In 2024, The Art of Choosing Perfect Thumbnails</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New 2024 Approved A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-best-10-free-video-translators-to-mitigate-translation-risks/"><u>New 2024 Approved Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-making-profitable-facebook-reels/"><u>Simplifying the Process of Making Profitable Facebook Reels</u></a></li>
+<li><a href="https://ai-video.techidaily.com/step-by-step-guide-how-to-translate-tiktok-videos/"><u>Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-amazon-luna-a-deep-dive-into-its-effortlessly-fluid-gameplay/"><u>Unveiling the Potential of Amazon Luna: A Deep Dive Into Its Effortlessly Fluid Gameplay</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
 </ul></div>
 
