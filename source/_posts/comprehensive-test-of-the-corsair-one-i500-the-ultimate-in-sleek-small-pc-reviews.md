@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2025-01-15T04:32:51.085Z
-updated: 2025-01-17T19:26:42.380Z
+date: 2025-01-17T05:22:51.946Z
+updated: 2025-01-23T22:08:03.010Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,18 +60,16 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-extensive-review-the-360-degree-capture-of-samsung-for-2024/"><u>[New] Extensive Review The 360-Degree Capture of Samsung for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-3-ways-to-record-lectures-on-mac-for-2024/"><u>[Updated] 3 Ways to Record Lectures on Mac for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>2024 Approved From Novice to Expert Mastering Movie Maker in Windows 8 Systems</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262399078-destroy-with-purpose-compete-in-the-cutting-edge-sport-of-server-smash-the-world-championship-2024-edition/"><u>Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition</u></a></li>
-<li><a href="https://driver-install.techidaily.com/dissecting-windows-2000s-wan-port-mysteries/"><u>Dissecting Windows 2000'S WAN Port Mysteries</u></a></li>
-<li><a href="https://video-capture.techidaily.com/experts-guide-to-laptop-screenrecord-software-for-2024/"><u>Expert's Guide to Laptop ScreenRecord Software for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-cinema-scenes-to-speaking-scenes-discovering-the-top-32-tools-for-video-translation/"><u>From Cinema Scenes to Speaking Scenes Discovering the Top 32 Tools for Video Translation</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-oppo-a79-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/introducing-the-geekom-ax8-your-new-workhorse-with-advanced-intel-13th-gen-and-latest-amd-ryzen-cpus/"><u>Introducing the Geekom AX8 - Your New Workhorse with Advanced Intel 13Th Gen and Latest AMD Ryzen CPUs</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/openai-loses-its-grip-on-gpt/"><u>OpenAI Loses Its Grip on GPT</u></a></li>
-<li><a href="https://ai-video.techidaily.com/slim-pocket-puppy-monitoring-pros/"><u>Slim-Pocket Puppy Monitoring Pros</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-next-leap-in-ai-computing-microsofts-custom-made-network-devices-for-advanced-data-centers-industry-update/"><u>The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-guide-best-15-gopro-support-systems/"><u>[Updated] Essential Guide Best 15 GoPro Support Systems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-stand-out-creating-unique-thumbnails-for-your-youtube-videos/"><u>[Updated] Stand Out Creating Unique Thumbnails for Your YouTube Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-swift-solutions-for-the-windows-10-photos-app-stability-woes/"><u>[Updated] Swift Solutions for the Window's 10 Photos App Stability Woes</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722968911922-enhance-your-audio-experience-on-windows-11-10-and-81-with-the-latest-dolby-driver-updates-free/"><u>Enhance Your Audio Experience on Windows 11, 10 & 8.1 with the Latest Dolby Driver Updates - Free</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-fix-chatgpts-error-in-moderation/"><u>How to Fix ChatGPT's ‘Error in Moderation’</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-honor-x9a-to-mac-drfone-by-drfone-android/"><u>How to Mirror Honor X9a to Mac? | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-the-best-translator-to-translate-videos-online/"><u>In 2024, The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/live-from-anywhere-reach-anyone-streaming-techniques-for-iphonesipads/"><u>Live From Anywhere, Reach Anyone Streaming Techniques for iPhones/iPads</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated How To Translate Videos in Tamil for a Wider Reach</u></a></li>
 </ul></div>
 
