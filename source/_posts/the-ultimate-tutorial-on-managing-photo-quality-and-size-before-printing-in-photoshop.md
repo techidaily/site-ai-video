@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
-date: 2025-01-20T02:52:26.425Z
-updated: 2025-01-23T20:39:34.696Z
+date: 2025-01-27T22:13:24.614Z
+updated: 2025-01-31T20:41:15.006Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop
@@ -18,7 +18,7 @@ thumbnail: https://www.lifewire.com/thmb/FUN_rUnFGKuw8pabB-MAGB4zVFo=/400x300/fi
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -41,16 +41,12 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -75,6 +71,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -104,10 +104,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -117,7 +113,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -142,6 +138,10 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -165,20 +165,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-magixs-legacy-in-vectors-finding-future-software/"><u>[New] 2024 Approved Magix's Legacy in Vectors Finding Future Software</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-shoot-igtv-videos-with-smartphonedlsr-cameras/"><u>[Updated] How to Shoot IGTV Videos With Smartphone/DLSR Cameras?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-the-art-of-visual-storytelling-made-simple-with-windows-10s-tools/"><u>[Updated] In 2024, The Art of Visual Storytelling Made Simple with Windows 10'S Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-picks-unleash-creativity-with-free-text-visualizers-online/"><u>[Updated] In 2024, Top Picks Unleash Creativity with Free Text Visualizers Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/67962671-2024-approved-elevate-your-videos-with-complimentary-banners-here/"><u>2024 Approved Elevate Your Videos with Complimentary Banners, Here!</u></a></li>
-<li><a href="https://ai-video.techidaily.com/bang-for-your-buck-the-acer-predator-orion-50-revealed-top-tier-tech-at-a-fraction-of-the-price/"><u>Bang for Your Buck: The Acer Predator Orion 50# Revealed – Top-Tier Tech at a Fraction of the Price</u></a></li>
-<li><a href="https://ai-video.techidaily.com/comparative-analysis-of-revenue-projections-amd-sets-higher-target-at-4-billion-while-nvidia-leads-the-race-with-a-40-billion-goal/"><u>Comparative Analysis of Revenue Projections: AMD Sets Higher Target at $4 Billion, While Nvidia Leads the Race with a $40 Billion Goal</u></a></li>
-<li><a href="https://ai-video.techidaily.com/discovering-high-performance-tech-a-deep-dive-on-toms-hardware/"><u>Discovering High-Performance Tech: A Deep Dive on Tom's Hardware</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/exploring-ais-landscape-boons-banes-and-balances/"><u>Exploring AI's Landscape: Boons, Banes, and Balances</u></a></li>
-<li><a href="https://ai-video.techidaily.com/exploring-high-performance-devices-a-look-inside-toms-hardware-universe/"><u>Exploring High-Performance Devices: A Look Inside Tom's Hardware Universe</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-expert-video-making-opt-for-studio-versus-beta-version/"><u>In 2024, Expert Video Making Opt for Studio Versus Beta Version</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-win-valorant-speed-hacks-for-01kbs/"><u>Mastering Win-Valorant Speed Hacks for 0.1KB/S</u></a></li>
-<li><a href="https://ai-video.techidaily.com/modern-ai-graphics-cards-power-gluttony-single-unit-consumes-37-mwhyear-eclipsing-homes-energy-usage-by-13-millions/"><u>Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-complete-guide-to-imovie-music/"><u>The Complete Guide to iMovie Music</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unveiling-the-best-in-computing-with-toms-gear/"><u>Unveiling the Best in Computing with Tom's Gear</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-balancing-act-lowering-audio-levels/"><u>[New] Balancing Act Lowering Audio Levels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-story-syndicate-visionary-voyages-best/"><u>[New] Story Syndicate – Visionary Voyage's Best</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-superior-mobile-and-pc-discord-capture-apps-for-2024/"><u>[New] Superior Mobile & PC Discord Capture Apps for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/best-10-chinese-video-to-english-translators/"><u>Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-elevate-listeners-mastering-seo-for-podcast-domination/"><u>In 2024, Elevate Listeners Mastering SEO for Podcast Domination</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-essential-techniques-in-youtube-movie-production/"><u>In 2024, Essential Techniques in YouTube Movie Production</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-poco-x5-easily-by-drfone-android/"><u>In 2024, How To Unlock a Poco X5 Easily?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>New In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-top-9-choices-for-video-auto-translate/"><u>New In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-troubleshooting-guide-for-non-receiving-yahoo-email-accounts/"><u>The Troubleshooting Guide for Non-Receiving Yahoo Email Accounts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/top-7-emojis-to-rule-your-tiktok-experience-for-2024/"><u>Top 7 Emojis to Rule Your TikTok Experience for 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/troubled-with-your-usb-solutions-for-when-windows-ignores-your-external-hard-drive-tech-advice-by-yl-computing/"><u>Troubled with Your USB: Solutions for When Windows Ignores Your External Hard Drive - Tech Advice by YL Computing</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-srt-subtitle-translation-tools-and-techniques/"><u>Updated In 2024, SRT Subtitle Translation Tools and Techniques</u></a></li>
 </ul></div>
 

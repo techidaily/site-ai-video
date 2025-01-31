@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2025-01-22T01:32:42.204Z
-updated: 2025-01-24T09:48:23.775Z
+date: 2025-01-26T18:41:42.396Z
+updated: 2025-01-31T21:31:49.233Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,18 +74,22 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-ultimate-tutorial-iphoneipad-time-lapse-recording/"><u>[Updated] The Ultimate Tutorial IPhone/iPad Time Lapse Recording</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/1726027264003-windows-and-mac/"><u>「Windows & Mac対応の無料動画エンコーダー - 最高の選択肢について学ぶ！」</u></a></li>
-<li><a href="https://ai-video.techidaily.com/7-best-real-time-video-translation-apps/"><u>7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://some-tips.techidaily.com/finding-it-tough-to-select-a-unique-gift-discover-how-googles-advanced-ai-can-generate-ideas-for-you-zdnet/"><u>Finding It Tough to Select a Unique Gift? Discover How Google's Advanced AI Can Generate Ideas for You | ZDNet</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/fundamental-skills-for-creating-persuasive-client-centered-testimonials-for-2024/"><u>Fundamental Skills for Creating Persuasive Client-Centered Testimonials for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-vivo-t2-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Vivo T2 5G Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-mac-graphics-revolution-top-10-freeware-drawings/"><u>In 2024, Mac Graphics Revolution Top 10 Freeware Drawings</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New In 2024, Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/pre-upgrade-essentials-a-comprehensive-guide-for-2024/"><u>Pre-Upgrade Essentials A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://techidaily.com/top-5-ways-to-fix-excel-2016-file-not-opening-error-stellar-by-stellar-guide/"><u>Top 5 Ways to Fix Excel 2016 File Not Opening Error | Stellar</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-and-solutions-for-black-screen-issues-in-fortnite-on-windows/"><u>Troubleshooting and Solutions for Black Screen Issues in Fortnite on Windows</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated In 2024, Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-exploring-the-power-of-yi-4k-cameras/"><u>[New] 2024 Approved Exploring the Power of YI 4K Cameras</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-craft-precise-notes-using-mematic-software/"><u>[Updated] 2024 Approved Craft Precise Notes Using Mematic Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellence-unleashed-top-tech-for-your-workspace/"><u>2024 Approved Excellence Unleashed - Top Tech For Your Workspace</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/breaking-down-barriers-chatgpts-role-in-workplace-e-mails/"><u>Breaking Down Barriers: ChatGPT's Role in Workplace E-Mails</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/correcting-audio-absence-in-obs-recordings-quickly-for-2024/"><u>Correcting Audio Absence in OBS Recordings Quickly for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-note-13-proplus-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Xiaomi Redmi Note 13 Pro+ 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>New Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
+<li><a href="https://ai-video.techidaily.com/top-7-online-auto-subtitle-translators-for-content-creators/"><u>Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transform-your-windows-with-chatgpt/"><u>Transform Your Windows With ChatGPT</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-best-10-chinese-video-to-english-translators/"><u>Updated Best 10 Chinese Video to English Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>Updated In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
 </ul></div>
 

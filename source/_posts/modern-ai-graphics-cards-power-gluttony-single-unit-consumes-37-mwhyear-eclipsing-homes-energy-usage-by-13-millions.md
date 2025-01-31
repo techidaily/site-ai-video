@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2025-01-19T21:25:18.426Z
-updated: 2025-01-23T16:03:13.964Z
+date: 2025-01-29T20:45:30.050Z
+updated: 2025-01-31T22:39:09.745Z
 tags:
   - desktop
 categories:
@@ -16,7 +16,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
@@ -41,7 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -67,22 +67,14 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-facetime-call-recording-techniques-unveiled/"><u>[New] 2024 Approved Facetime Call Recording Techniques Unveiled</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-enhancing-your-video-experience-a-guide-to-using-logitech-webcam-for-2024/"><u>[New] Enhancing Your Video Experience - A Guide to Using Logitech Webcam for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-achieve-professional-aesthetics-embedding-watermarks-and-branding-in-videos/"><u>[New] In 2024, Achieve Professional Aesthetics Embedding Watermarks & Branding in Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-snapdivide-assessment-for-2024/"><u>[Updated] SnapDivide Assessment for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/get-instant-access-to-macos-15-sequoia-preview-on-your-macbook-or-desktop-a-comprehensive-walkthrough-zdnet/"><u>Get Instant Access to MacOS 15 Sequoia Preview on Your MacBook or Desktop: A Comprehensive Walkthrough | ZDNet</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-google-pixel-7a-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Google Pixel 7a Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-c110-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia C110 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/mid-range-moments-economical-gamer-motherboards/"><u>Mid-Range Moments: Economical Gamer Motherboards</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-top-9-choices-for-video-auto-translate/"><u>New Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-the-absent-msodll-a-step-by-step-guide/"><u>Troubleshooting the Absent mso.dll: A Step-by-Step Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>Updated In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-ultimate-7-secure-video-conferencing-systems-for-smbs/"><u>[Updated] 2024 Approved Ultimate 7 Secure Video Conferencing Systems for SMBs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-infinite-inspiration-cost-free-youtube-theming/"><u>[Updated] Infinite Inspiration Cost-Free YouTube Theming</u></a></li>
+<li><a href="https://win-community.techidaily.com/how-can-different-maintenance-practices-impact-your-pcs-efficiency-insights-from-yl-tech/"><u>How Can Different Maintenance Practices Impact Your PC's Efficiency? - Insights From YL Tech</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-achieve-sharpness-camera-tips-without-a-tripod/"><u>In 2024, Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-netflix-subtitle-translation-methods-comprehensive-guide/"><u>New 2024 Approved Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-c53-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme C53 Location | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 2024 Approved 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-convert-video-voice-to-text-online-for-freein-2024/"><u>Updated How To Convert Video Voice to Text Online for Free,In 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated In 2024, Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
 </ul></div>
 

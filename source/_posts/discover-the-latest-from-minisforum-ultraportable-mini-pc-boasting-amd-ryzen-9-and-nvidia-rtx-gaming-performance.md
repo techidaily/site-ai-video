@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2025-01-21T19:13:57.430Z
-updated: 2025-01-24T04:46:05.169Z
+date: 2025-01-25T18:34:43.717Z
+updated: 2025-01-31T21:02:10.457Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,16 +89,19 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-mastering-mac-audacitys-audio-recording-guide/"><u>[New] 2024 Approved Mastering Mac Audacity's Audio Recording Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-melding-music-and-media-the-reel-rhythm-guide/"><u>[New] Melding Music and Media The Reel Rhythm Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-how-to-nail-your-tweets-with-correct-videos/"><u>[Updated] In 2024, How to Nail Your Tweets with Correct Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-the-ultimate-guide-to-simple-iphone-screencasting-for-2024/"><u>[Updated] The Ultimate Guide to Simple iPhone Screencasting for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/how-to-translate-instagram-videos-for-global-engagement/"><u>How to Translate Instagram Videos for Global Engagement</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-xiaomi-14-ultra-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Xiaomi 14 Ultra Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-nubia-red-magic-9-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Nubia Red Magic 9 Pro to Mac? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>New 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-complete-guide-of-top-7-video-language-translators/"><u>New A Complete Guide of Top 7 Video Language Translators</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unveiling-nvidias-strategy-a-look-inside-the-newly-open-source-gpu-driver-revelation-exploring-your-computers-core-components/"><u>Unveiling Nvidia's Strategy: A Look Inside the Newly-Open Source GPU Driver Revelation - Exploring Your Computer's Core Components</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-7-best-real-time-video-translation-apps/"><u>Updated 2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-fix-youtube-shorts-thumbnail-not-showing-problem/"><u>[New] How to Fix YouTube Shorts Thumbnail Not Showing Problem</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-ultimate-ranking-of-superior-9-online-mic-recorders/"><u>[New] In 2024, The Ultimate Ranking of Superior 9 Online Mic Recorders</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-camclip-collector-social-edition/"><u>[Updated] CamClip Collector, Social Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-ultimate-guide-premium-plugins-boosting-ae-projects/"><u>2024 Approved Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
+<li><a href="https://ai-video.techidaily.com/easy-steps-to-translate-video-on-twitter/"><u>Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-bert-model-vs-gpt-for-advanced-text-processing/"><u>Exploring the BERT Model Vs. GPT for Advanced Text Processing</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-synthesizing-waterway-content-with-impact/"><u>In 2024, Synthesizing Waterway Content with Impact</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-intricacies-of-high-dynamic-range-quantum-hdr/"><u>The Intricacies of High Dynamic Range (Quantum HDR)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-tecno-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Tecno Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://ai-video.techidaily.com/translate-video-from-japanese-to-english-online-for-free/"><u>Translate Video From Japanese to English Online for Free</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-harmonizing-acoustics-and-imagery-find-out-the-top-5-integrated-soundvisual-devices/"><u>Updated 2024 Approved Harmonizing Acoustics and Imagery Find Out the Top 5 Integrated Sound/Visual Devices</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
 </ul></div>
 

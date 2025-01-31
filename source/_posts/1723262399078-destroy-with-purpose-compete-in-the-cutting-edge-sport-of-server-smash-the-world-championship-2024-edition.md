@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2025-01-21T04:14:46.444Z
-updated: 2025-01-24T01:54:46.005Z
+date: 2025-01-28T18:20:06.404Z
+updated: 2025-01-31T18:53:33.458Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,21 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-which-gopro-is-better-max-360-or-hero-11/"><u>[Updated] 2024 Approved Which GoPro Is Better, Max 360 or Hero 11?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-academic-anchors-identifying-top-10-lecture-preservation-tools-for-2024/"><u>[Updated] Academic Anchors Identifying Top 10 Lecture Preservation Tools for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-elite-ai-for-high-fidelity-image-editing/"><u>[Updated] In 2024, Elite AI for High-Fidelity Image Editing</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>2024 Approved Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-proving-ground-for-a-wealthy-creator-carryminatis-story-ajey/"><u>2024 Approved Proving Ground for a Wealthy Creator CarryMinati's Story (Ajey)</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-brief-review-of-capcut-translate-with-alternative/"><u>A Brief Review of CapCut Translate With Alternative</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-honor-70-lite-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Honor 70 Lite 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-premium-aerial-companions-for-gopro-hd-adventures/"><u>In 2024, Premium Aerial Companions for GoPro HD Adventures</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://driver-install.techidaily.com/safely-download-your-pcs-tp-link-wi-fi-driver-here/"><u>Safely Download Your PC's TP Link Wi-Fi Driver Here</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-true-expenses-of-free-phones-from-telecom-providers-expert-insights-revealed/"><u>Unveiling the True Expenses of Free Phones From Telecom Providers - Expert Insights Revealed</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-tool-to-translate-youtube-video-to-arabic/"><u>Updated Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-x50-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-pros-guide-to-uploading-twitter-videos-to-snapchat-for-2024/"><u>[New] The Pro's Guide to Uploading Twitter Videos to Snapchat for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-exciting-auto-play-hits-for-children/"><u>[Updated] In 2024, Exciting Auto-Play Hits for Children</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-premium-membership-uncovered-your-complete-guide-for-2024/"><u>[Updated] Premium Membership Uncovered Your Complete Guide for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-for-free-video-translator-downloading/"><u>A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/expertly-restore-your-damaged-photos/"><u>Expertly Restore Your Damaged Photos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-samsung-galaxy-s24-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Samsung Galaxy S24 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-13-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 13 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-content-creators-earnings-timeline-on-youtube/"><u>In 2024, Content Creators’ Earnings Timeline on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-savor-the-spectacle-best-practices-for-cooking-channel-titling/"><u>In 2024, Savor the Spectacle Best Practices for Cooking Channel Titling</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-find-x6-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Find X6 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-translate-youtube-videos-to-english-subtitles/"><u>New How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/upcoming-sony-vr-revolution-forecasted-price-points-official-debut-date-and-intriguing-hardware-facts/"><u>Upcoming Sony VR Revolution: Forecasted Price Points, Official Debut Date, and Intriguing Hardware Facts</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
 </ul></div>
 

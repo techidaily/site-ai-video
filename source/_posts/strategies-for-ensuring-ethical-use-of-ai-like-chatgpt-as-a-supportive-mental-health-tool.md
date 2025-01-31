@@ -1,7 +1,7 @@
 ---
 title: Strategies for Ensuring Ethical Use of AI Like ChatGPT as a Supportive Mental Health Tool
-date: 2025-01-17T05:01:20.353Z
-updated: 2025-01-23T16:25:20.263Z
+date: 2025-01-29T22:33:26.074Z
+updated: 2025-01-31T21:02:57.265Z
 tags:
   - chatgpt
   - open-ai
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/1003c2d436af1af88200a4fecafa1c9b55219d7d2
 ## Exploring the Potential of Generative AI as a Modern Conduit for False Information Dissemination
 
  Artificial Intelligence (AI) now plays a role in various aspects of our lives. Specifically, generative AI tools such as ChatGPT and others have grown significantly. This means that there will be an abundance of AI-generated content in the future.However, generative AI also introduces the risk of AI-generated disinformation. Its features make it easier for opportunistic individuals to spread false information. So, let's explore how generative AI is being utilized for disinformation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Potential Risks of Generative AI to Spread Disinformation
 
@@ -42,7 +38,7 @@ False news can be categorized into three types:
  To stay safe online, everyone needs to understand the risks of generative AI in spreading disinformation, as it comes in many different forms. Here are a few ways it can be used to manipulate people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Generating Fake Content Online
@@ -55,11 +51,11 @@ Here's the fictitious article that ChatGPT came up with:
 
 ![ChatGPT created a fictitious news article about corruption charges against Joe Biden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/chatgpt-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Surprisingly, the output was highly persuasive. It included the names and statements of authoritative figures to make the article more convincing. This shows how anyone can use such tools to generate false news and easily spread it online.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Using Chatbots to Influence People's Opinions
 
@@ -73,7 +69,7 @@ Here's the fictitious article that ChatGPT came up with:
  These examples all illustrate how chatbots can be utilized to mislead people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Creating AI DeepFakes
@@ -83,6 +79,10 @@ Here's the fictitious article that ChatGPT came up with:
  Additionally, political adversaries may use deepfake audio and videos to tarnish the reputation of their opponents, manipulating public sentiment with the help of AI. So[AI-generated deepfakes pose numerous threats in the future](https://www.makeuseof.com/future-and-dangers-of-ai-deepfakes/) . According to a 2023[Reuters report](https://www.reuters.com/world/us/deepfaking-it-americas-2024-election-collides-with-ai-boom-2023-05-30/) , the rise of AI technology could impact America's 2024 elections. The report highlights the accessibility of tools like Midjourney and DALL-E that can easily create fabricated content and influence people's collective opinions.
 
  It's crucial, then, to be able to[identify videos created by deepfakes](https://www.makeuseof.com/how-can-you-tell-video-deepfake/) and distinguish them from originals.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Cloning Human Voices
 
@@ -104,7 +104,7 @@ Here's the fictitious article that ChatGPT came up with:
  By following these steps, you can identify and protect yourself from AI-driven misinformation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Beware of Disinformation Spread by AI
@@ -128,19 +128,17 @@ Here's the fictitious article that ChatGPT came up with:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-adjusting-windows-11-settings-for-adaptive-hdr/"><u>[Updated] 2024 Approved Adjusting Windows 11 Settings for Adaptive HDR</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-overcoming-windows-10-photo-viewer-challenges-quick-fixes/"><u>[Updated] Overcoming Windows 10 Photo Viewer Challenges Quick Fixes</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-7-best-real-time-video-translation-apps/"><u>2024 Approved 7 Best Real Time Video Translation Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>2024 Approved An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
-<li><a href="https://fox-access.techidaily.com/crafting-the-perfect-chat-sound-downloading-and-customizing-whatsapp-ringtones/"><u>Crafting the Perfect Chat Sound Downloading & Customizing WhatsApp Ringtones</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/creative-freedom-vs-tech-titans-sarah-silverman-and-co-challenge-openaimeta/"><u>Creative Freedom Vs. Tech Titans: Sarah Silverman and Co. Challenge OpenAI/Meta</u></a></li>
-<li><a href="https://win-updates.techidaily.com/free-techniques-to-eliminate-watermarks-from-videos/"><u>Free Techniques to Eliminate Watermarks From Videos</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>In 2024, Step Up Your Video Game Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-subscriber-lists-a-youtube-guide/"><u>In 2024, Unveiling Subscriber Lists A YouTube Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New 2024 Approved How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/skype-talk-improvement-silence-the-surroundings-for-2024/"><u>Skype Talk Improvement Silence the Surroundings for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated 2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-auto-translate-youtube-videos-into-different-languages/"><u>Updated In 2024, How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-from-novice-to-viral-video-top-30-anime-inspiration-ideas-for-2024/"><u>[New] From Novice to Viral Video Top 30 Anime Inspiration Ideas for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-igtv-unveiled-5-essential-downloads-for-mobile-devices/"><u>[New] IGTV Unveiled 5 Essential Downloads for Mobile Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-essential-six-digital-communication-hubs-for-corporate-success/"><u>[Updated] In 2024, Essential Six Digital Communication Hubs for Corporate Success</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>2024 Approved Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://win-able.techidaily.com/addressing-dota-2s-latest-vac-error-effective-strategies-for-account-revival/"><u>Addressing Dota 2'S Latest VAC Error: Effective Strategies for Account Revival</u></a></li>
+<li><a href="https://driver-error.techidaily.com/devices-driver-unavailable/"><u>Device's Driver Unavailable</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/grab-the-amazing-labor-day-offer-up-to-25-off-on-premium-quality-blink-mini-2-security-camera-top-discount-alert/"><u>Grab the Amazing Labor Day Offer! Up to 25% Off on Premium Quality Blink Mini 2 Security Camera - Top Discount Alert!</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-gpt-4-at-zero-cost-four-insider-tips/"><u>Navigating GPT-4 at Zero Cost: Four Insider Tips</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-best-tool-to-translate-youtube-video-to-arabic/"><u>New In 2024, Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-any-hindi-video-into-english-with-ai/"><u>Updated 2024 Approved Translate Any Hindi Video Into English With AI</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-instagram-videos-for-global-engagement/"><u>Updated In 2024, How to Translate Instagram Videos for Global Engagement</u></a></li>
 </ul></div>
 
