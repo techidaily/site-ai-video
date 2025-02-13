@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2025-01-26T18:41:42.396Z
-updated: 2025-01-31T21:31:49.233Z
+date: 2025-02-10T21:46:50.345Z
+updated: 2025-02-13T09:41:28.901Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,22 +74,19 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-exploring-the-power-of-yi-4k-cameras/"><u>[New] 2024 Approved Exploring the Power of YI 4K Cameras</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-craft-precise-notes-using-mematic-software/"><u>[Updated] 2024 Approved Craft Precise Notes Using Mematic Software</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellence-unleashed-top-tech-for-your-workspace/"><u>2024 Approved Excellence Unleashed - Top Tech For Your Workspace</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/breaking-down-barriers-chatgpts-role-in-workplace-e-mails/"><u>Breaking Down Barriers: ChatGPT's Role in Workplace E-Mails</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/correcting-audio-absence-in-obs-recordings-quickly-for-2024/"><u>Correcting Audio Absence in OBS Recordings Quickly for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-note-13-proplus-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Xiaomi Redmi Note 13 Pro+ 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-how-to-translate-youtube-videos-to-english-subtitles/"><u>In 2024, How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>New Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-7-online-auto-subtitle-translators-for-content-creators/"><u>Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transform-your-windows-with-chatgpt/"><u>Transform Your Windows With ChatGPT</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-best-10-chinese-video-to-english-translators/"><u>Updated Best 10 Chinese Video to English Translators</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>Updated In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-list-of-instagram-video-converters-windowsos-x/"><u>[New] 2024 Approved The Ultimate List of Instagram Video Converters (Windows/OS X)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-activatingdeactivating-picture-in-picture-feature-for-2024/"><u>[New] Activating/Deactivating Picture-in-Picture Feature for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-cross-play-exclusivity-guide-in-apex-legends-games/"><u>[Updated] 2024 Approved Cross-Play Exclusivity Guide in Apex Legends Games</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/avs-video-editor-a-detailed-review-for-beginners-and-pros-for-2024/"><u>AVS Video Editor A Detailed Review for Beginners and Pros for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-audio-capture-gear-top-7-list-2023-edition-for-2024/"><u>Cutting-Edge Audio Capture Gear Top 7 List, 2023 Edition for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-pc-setup-sticking-gmail-on-the-windows-taskbar/"><u>Essential PC Setup: Sticking Gmail on the Windows Taskbar</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/experts-choice-for-ultimate-iphone-16-and-16-pro-shields-in-202amoon-comprehensive-review-on-zdnet/"><u>Experts' Choice for Ultimate iPhone 16 and 16 Pro Shields in 202Amoon: Comprehensive Review on ZDNET</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-9-best-french-video-translators-online-and-download-options/"><u>In 2024, 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New 2024 Approved A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://win11.techidaily.com/techniques-for-resolving-roblox-system-failures/"><u>Techniques for Resolving Roblox System Failures</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-next-generation-of-video-splitters-post-xplit/"><u>The Next Generation of Video Splitters Post-Xplit</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
 </ul></div>
 

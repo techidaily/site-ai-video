@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2025-01-28T18:20:06.404Z
-updated: 2025-01-31T18:53:33.458Z
+date: 2025-02-10T19:17:57.047Z
+updated: 2025-02-13T01:17:52.175Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,22 +60,15 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-the-pros-guide-to-uploading-twitter-videos-to-snapchat-for-2024/"><u>[New] The Pro's Guide to Uploading Twitter Videos to Snapchat for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-exciting-auto-play-hits-for-children/"><u>[Updated] In 2024, Exciting Auto-Play Hits for Children</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-premium-membership-uncovered-your-complete-guide-for-2024/"><u>[Updated] Premium Membership Uncovered Your Complete Guide for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
-<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-for-free-video-translator-downloading/"><u>A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
-<li><a href="https://ai-video.techidaily.com/expertly-restore-your-damaged-photos/"><u>Expertly Restore Your Damaged Photos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-samsung-galaxy-s24-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Samsung Galaxy S24 to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-13-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 13 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-content-creators-earnings-timeline-on-youtube/"><u>In 2024, Content Creators’ Earnings Timeline on YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-savor-the-spectacle-best-practices-for-cooking-channel-titling/"><u>In 2024, Savor the Spectacle Best Practices for Cooking Channel Titling</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-find-x6-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Find X6 Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-how-to-translate-youtube-videos-to-english-subtitles/"><u>New How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/upcoming-sony-vr-revolution-forecasted-price-points-official-debut-date-and-intriguing-hardware-facts/"><u>Upcoming Sony VR Revolution: Forecasted Price Points, Official Debut Date, and Intriguing Hardware Facts</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-live-chat-to-large-screen-upload-twitch-streams-to-youtube/"><u>[Updated] From Live Chat to Large Screen Upload Twitch Streams to YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-cutting-edge-graphic-amendments/"><u>[Updated] In 2024, Cutting-Edge Graphic Amendments</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>2024 Approved Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-easy-steps-to-translate-video-on-twitter/"><u>2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-motorola-by-drfone-android/"><u>How to Bypass FRP on Motorola?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps-for-2024/"><u>Innovation in Minimization The Finest Selection of 43 Mobile Video Trimming Apps for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/win-11-hdmi-update-guide-upgrading-your-drivers/"><u>Win 11 HDMI Update Guide: Upgrading Your Drivers</u></a></li>
 </ul></div>
 
