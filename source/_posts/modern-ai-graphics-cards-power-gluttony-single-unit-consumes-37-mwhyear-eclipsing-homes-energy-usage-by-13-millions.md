@@ -1,7 +1,7 @@
 ---
 title: "Modern AI Graphics Cards' Power Gluttony: Single Unit Consumes 3.7 MWh/Year, Eclipsing Homes' Energy Usage by 1.3 Millions"
-date: 2025-02-07T19:22:07.790Z
-updated: 2025-02-13T01:48:16.922Z
+date: 2025-03-01T17:53:55.415Z
+updated: 2025-03-04T09:11:08.196Z
 tags:
   - desktop
 categories:
@@ -14,10 +14,6 @@ thumbnail: https://thmb.techidaily.com/0e4e69a266c0e21cfaa72121cb274553aaa959ab8
 In an interesting turn of events, the first device boasting the highest-end version of Qualcomm's Snapdragon X Elite chipset isn't even a laptop. It's a Mini PC in the form of an official Dev Kit, which undercuts ([or at least matches](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.anrdoezrs.net%2Fclick-8900246-12578053%3Fsid%3Dtomshardware-us-1069194734322795598%26url%3Dhttps%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fdell-computer-laptops%2Fnew-inspiron-14-plus-laptop%2Fspd%2Finspiron-14-7441-laptop%2Fuseichbts7441hcjp%3Fref%3Dvariantstack) ) the price of even the lower-end Snapdragon X Plus laptops, and it's set for a full launch on August 23rd, though it's also already available for pre-order on[Arrow.com](https://www.arrow.com/en/products/c8380-12c-mp-32g/thundercomm) for just $899 USD.
 
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
 
@@ -39,10 +35,6 @@ In an interesting turn of events, the first device boasting the highest-end vers
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
@@ -67,20 +59,17 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-briefclip-artist/"><u>[New] 2024 Approved BriefClip Artist</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-unlocking-global-audiences-top-video-language-converters/"><u>2024 Approved Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-setup-with-official-easycap-drivers-download/"><u>Effortless Setup with Official EasyCap Drivers Download</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>In 2024, 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-from-screens-to-stories-vertical-video-mastery-with-fcpx/"><u>In 2024, From Screens to Stories Vertical Video Mastery with FCPX</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-top-5-chill-out-scenes-to-add-zest-to-your-snowy-videos/"><u>In 2024, Top 5 Chill-Out Scenes to Add Zest to Your Snowy Videos</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-translate-any-hindi-video-into-english-with-ai/"><u>In 2024, Translate Any Hindi Video Into English With AI</u></a></li>
-<li><a href="https://tools.techidaily.com/wondershare/drfone/phone-switch/"><u>iOS & Android Phone Transfer</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New 2024 Approved Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-persistent-windows-update-stalling-at-completion/"><u>Resolving Persistent Windows Update Stalling at Completion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-science-of-display-understanding-srgb-vs-rgb-colors-for-2024/"><u>The Science of Display Understanding Srgb vs Rgb Colors for 2024</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/transferring-photographs-between-icloud-profiles-easily-and-securely/"><u>Transferring Photographs Between iCloud Profiles Easily and Securely</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated 2024 Approved Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>Updated In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-expert-tips-on-controlling-timeline-pace-in-videos/"><u>[New] In 2024, Expert Tips on Controlling Timeline Pace in Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-capturing-classroom-dynamics-easily-for-2024/"><u>[Updated] Capturing Classroom Dynamics Easily for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-a-brief-review-of-capcut-translate-with-alternative/"><u>2024 Approved A Brief Review of CapCut Translate With Alternative</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-ultimate-guide-to-uniform-focus-in-teamblend-calls/"><u>2024 Approved The Ultimate Guide to Uniform Focus in Teamblend Calls</u></a></li>
+<li><a href="https://extra-information.techidaily.com/advanced-cropping-skills-for-image-clarity-for-2024/"><u>Advanced Cropping Skills for Image Clarity for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/avoiding-objections-to-autoplay-videos-on-fb-for-2024/"><u>Avoiding Objections to Autoplay Videos on FB for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-7-plus-by-phone-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 7 Plus by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-use-korean-to-english-video-translators-for-creators/"><u>New In 2024, How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-blueprint-for-successful-freefire-videos-on-youtube-for-2024/"><u>The Ultimate Blueprint for Successful FreeFire Videos on YouTube for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated 2024 Approved 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-maximize-yandex-translate-in-video-translation-and-beyond/"><u>Updated In 2024, Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>Updated Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Destroy with Purpose: Compete in the Cutting Edge Sport of Server Smash - The World Championship, 2024 Edition"
-date: 2025-02-10T19:17:57.047Z
-updated: 2025-02-13T01:17:52.175Z
+date: 2025-03-02T06:33:30.670Z
+updated: 2025-03-03T21:45:37.983Z
 tags:
   - desktop
 categories:
@@ -31,10 +31,6 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -60,15 +56,20 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-from-live-chat-to-large-screen-upload-twitch-streams-to-youtube/"><u>[Updated] From Live Chat to Large Screen Upload Twitch Streams to YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-cutting-edge-graphic-amendments/"><u>[Updated] In 2024, Cutting-Edge Graphic Amendments</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>2024 Approved Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-easy-steps-to-translate-video-on-twitter/"><u>2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-how-to-translate-youtube-videos-to-english-subtitles/"><u>2024 Approved How to Translate YouTube Videos to English Subtitles</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-motorola-by-drfone-android/"><u>How to Bypass FRP on Motorola?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps-for-2024/"><u>Innovation in Minimization The Finest Selection of 43 Mobile Video Trimming Apps for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/win-11-hdmi-update-guide-upgrading-your-drivers/"><u>Win 11 HDMI Update Guide: Upgrading Your Drivers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-why-are-instavids-tilted-upside-down/"><u>[New] 2024 Approved Why Are InstaVids Tilted Upside Down?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-aural-elegance-selecting-high-quality-ringtones-online-for-2024/"><u>[New] Aural Elegance Selecting High-Quality Ringtones Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-video-playback-with-av1-on-youtube-for-2024/"><u>[New] Enhance Video Playback with AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-richer-screen-content-filter-integration-on-devices/"><u>2024 Approved Richer Screen Content Filter Integration on Devices</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>2024 Approved Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-vivid-visuals-brush-up-your-youtube-beauty-videos/"><u>2024 Approved Vivid Visuals Brush up Your YouTube Beauty Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-exploring-mukbang-culture-in-live-video-formats/"><u>In 2024, Exploring Mukbang Culture in Live Video Formats</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-poco-x5-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Poco X5 FRP Bypass</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-translate-instagram-videos-for-global-engagement/"><u>New How to Translate Instagram Videos for Global Engagement</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/premiere-guide-uploading-vids-for-youtube/"><u>Premiere Guide Uploading Vids for YouTube</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated 2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated 2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing AI Computing: Gigabyte's All-in-One Solutions with Top-Tier Workstations, AMD & Intel Graphics, Speedy SSDs, Reliable PSUs, and Specialized Software"
-date: 2025-02-10T06:26:17.682Z
-updated: 2025-02-13T09:50:56.019Z
+date: 2025-02-24T19:36:55.656Z
+updated: 2025-03-04T03:19:02.439Z
 tags:
   - desktop
 categories:
@@ -31,10 +31,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -49,10 +45,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -60,10 +52,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -88,16 +76,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-analytics-tools-for-an-improved-tracking-of-your-instagram-metrics/"><u>[Updated] 2024 Approved Analytics Tools For an Improved Tracking of Your Instagram Metrics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-through-the-best-tools-to-monitor-instagram-metrics-effectively/"><u>[Updated] In 2024, Navigating Through the Best Tools to Monitor Instagram Metrics Effectively</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-tier-free-video-editing-software-guide-for-iphoneipad-users/"><u>[Updated] Top-Tier Free Video Editing Software Guide for iPhone/iPad Users</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-proven-strategies-for-smooth-recording-in-google-meethangouts-platforms/"><u>2024 Approved Proven Strategies for Smooth Recording in Google Meet/Hangouts Platforms</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-technology-choices-insights-from-toms-hardware/"><u>Mastering Technology Choices - Insights From Tom's Hardware</u></a></li>
-<li><a href="https://ai-video.techidaily.com/mastering-your-electronic-needs-at-tomn-tech-haven-the-ultimate-resource/"><u>Mastering Your Electronic Needs at Tom'n Tech Haven - The Ultimate Resource</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-adobe-premiere-rush-vs-the-competition-top-4-alternatives/"><u>New 2024 Approved Adobe Premiere Rush Vs. The Competition Top 4 Alternatives</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reactivate-winget-in-a-click-for-windows-11/"><u>Reactivate Winget in a Click for Windows 11</u></a></li>
-<li><a href="https://ai-video.techidaily.com/revolutionize-your-workflow-the-mighty-briefcase-with-up-to-amo-368tb-of-nvme-ssds-equipped-with-high-performance-components/"><u>Revolutionize Your Workflow: The Mighty Briefcase With Up to Amo 368TB of NVMe SSDs, Equipped with High-Performance Components</u></a></li>
-<li><a href="https://ai-video.techidaily.com/the-ultimate-tutorial-on-managing-photo-quality-and-size-before-printing-in-photoshop/"><u>The Ultimate Tutorial on Managing Photo Quality & Size Before Printing in Photoshop</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-rated-laptops-and-computers-sales/"><u>Top Rated Laptops & Computers Sales</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-pathway-to-prosperity-a-graphic-designers-journey/"><u>[New] 2024 Approved The Pathway to Prosperity A Graphic Designer's Journey</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-talkers-theme-transformer/"><u>[New] Top Talkers' Theme Transformer</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/employee-training-for-2024/"><u>Employee Training for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/entschlusseln-des-mysteriums-musik-erscheint-ausschliesslich-in-itunes-und-nicht-auf-deinem-iphone-grunde-und-losungen/"><u>Entschlüsseln Des Mysteriums: Musik Erscheint Ausschließlich in iTunes Und Nicht Auf Deinem iPhone – Gründe Und Lösungen</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-ensure-you-cant-go-back-removing-your-yahoo-mail-account-permanently/"><u>How to Ensure You Can't Go Back: Removing Your Yahoo Mail Account Permanently</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-find-x7-ultra-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Oppo Find X7 Ultra</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>New 2024 Approved How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New 2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New 2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-9-choices-for-video-auto-translate/"><u>New 2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New In 2024, Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/premium-online-platforms-for-video-intro-creation-for-2024/"><u>Premium Online Platforms for Video Intro Creation for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/scelta-dei-5-migliori-programmi-mac-per-la-playback-di-formati-video-wmv-una-guida-completa/"><u>Scelta Dei 5 Migliori Programmi Mac per La Playback Di Formati Video WMV: Una Guida Completa</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/sonic-shifts-for-strategic-victories-in-free-fire/"><u>Sonic Shifts for Strategic Victories in Free Fire</u></a></li>
 </ul></div>
 

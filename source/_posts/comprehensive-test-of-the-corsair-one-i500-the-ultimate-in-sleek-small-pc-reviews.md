@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Test of the Corsair ONE I500: The Ultimate in Sleek, Small PC Reviews"
-date: 2025-02-09T10:40:04.494Z
-updated: 2025-02-12T20:36:05.120Z
+date: 2025-02-28T00:56:18.589Z
+updated: 2025-03-03T21:16:06.979Z
 tags:
   - desktop
 categories:
@@ -31,10 +31,6 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -60,20 +56,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-essential-9-gif-recipes-for-capturing-windows-graphics-fun/"><u>[New] Essential 9 GIF Recipes for Capturing Windows Graphics Fun</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-the-melody-incorporating-music-seamlessly-in-youtube/"><u>[Updated] 2024 Approved Mastering the Melody Incorporating Music Seamlessly in YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ultra-clear-gaming-best-21-hdmi-compatible-monitors-ps5/"><u>[Updated] In 2024, Ultra Clear Gaming Best 2.1 HDMI Compatible Monitors [PS5]</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-step-into-reflection-editing-your-facebook-past-videos-for-2024/"><u>[Updated] Step Into Reflection Editing Your Facebook Past Videos for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024s-most-wanted-the-definitive-guide-to-high-performance-gaming-machines/"><u>2024'S Most Wanted: The Definitive Guide to High-Performance Gaming Machines</u></a></li>
-<li><a href="https://ai-video.techidaily.com/discover-the-aquatic-style-tecno-x-geekom-g1-your-next-gaming-unit-with-liquid-cooling-and-intel-i9-processor/"><u>Discover the Aquatic Style: Tecno X Geekom G1, Your Next Gaming Unit with Liquid Cooling & Intel I9 Processor</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-leveraging-zoom-for-optimal-productivity-in-win11-environments/"><u>In 2024, Leveraging Zoom for Optimal Productivity in Win11 Environments</u></a></li>
-<li><a href="https://ai-video.techidaily.com/plants-vs-zombies-neighborville-a-hilarious-adventure-gone-right/"><u>Plants Vs. Zombies: Neighborville - A Hilarious Adventure Gone Right</u></a></li>
-<li><a href="https://ai-video.techidaily.com/1723262391694-qualcomm-unveils-a-new-era-of-desktop-computing-the-economical-snapdragon-x-mini-dev-kit-preorders-open/"><u>Qualcomm Unveils a New Era of Desktop Computing – The Economical Snapdragon X Mini Dev Kit, Preorders Open!</u></a></li>
-<li><a href="https://ai-video.techidaily.com/toms-computer-and-gadget-hub-in-depth-analysis-of-electronics/"><u>Tom's Computer & Gadget Hub: In-Depth Analysis of Electronics</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-huawei-p60-by-drfone-android/"><u>Top 10 Password Cracking Tools For Huawei P60</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-guide-making-steam-acknowledge-your-controller-on-a-pc/"><u>Troubleshooting Guide: Making Steam Acknowledge Your Controller on a PC</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/ultimate-tutorial-for-opening-vob-movies-on-windows-11-macos-and-other-devices-successfully/"><u>Ultimate Tutorial for Opening VOB Movies on Windows 11, macOS & Other Devices Successfully</u></a></li>
-<li><a href="https://ai-video.techidaily.com/unveiling-the-best-gadgets-and-computer-equipment-with-toms-hardware-insights/"><u>Unveiling the Best Gadgets and Computer Equipment with Tom's Hardware Insights</u></a></li>
-<li><a href="https://ai-video.techidaily.com/watch-the-hottest-the-7-premier-platforms-featuring-latest-movie-clips/"><u>Watch the Hottest: The 7 Premier Platforms Featuring Latest Movie Clips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-crystalclear-screenshot-on-w10/"><u>[New] CrystalClear Screenshot on W10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-superb-simple-countdown-apps-for-free-for-2024/"><u>[New] Superb Simple Countdown Apps for Free for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-notch-game-capture-applications-outshining-fbx-capabilities/"><u>[Updated] Top-Notch Game Capture Applications Outshining FBX Capabilities</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-seamless-and-secure-downloading-instagram-videos-from-your-computermacos/"><u>2024 Approved Seamless & Secure Downloading Instagram Videos From Your Computer/MacOS</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-the-best-translator-to-translate-videos-online/"><u>2024 Approved The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-practices-for-filming-screen-captures/"><u>Best Practices for Filming Screen Captures</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-auto-translate-youtube-videos-into-different-languages/"><u>How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-safeguard-your-text-files-with-simple-password-protection/"><u>How To Safeguard Your Text Files With Simple Password Protection</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-blueprints-for-successful-docu-screenplays/"><u>In 2024, Blueprints for Successful Docu-Screenplays</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-convert-video-voice-to-text-online-for-free/"><u>In 2024, How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-how-to-make-a-youtube-reaction-video/"><u>In 2024, How to Make a YouTube Reaction Video?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>New 2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-best-video-language-changers-to-make-your-videos-accessible/"><u>New In 2024, Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-tecno-spark-10c-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Tecno Spark 10C Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/premium-choice-top-12-apps-with-no-time-limit-feature/"><u>Premium Choice Top 12 Apps with No Time Limit Feature</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>Updated 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-the-best-translator-to-translate-videos-online/"><u>Updated In 2024, The Best Translator to Translate Videos Online</u></a></li>
 </ul></div>
 

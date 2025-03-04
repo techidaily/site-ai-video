@@ -1,7 +1,7 @@
 ---
 title: "The Next Leap in AI Computing: Microsoft's Custom-Made Network Devices for Advanced Data Centers - Industry Update"
-date: 2025-02-10T21:46:50.345Z
-updated: 2025-02-13T09:41:28.901Z
+date: 2025-03-01T19:00:45.070Z
+updated: 2025-03-04T02:39:11.541Z
 tags:
   - desktop
 categories:
@@ -47,10 +47,6 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -74,19 +70,21 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-list-of-instagram-video-converters-windowsos-x/"><u>[New] 2024 Approved The Ultimate List of Instagram Video Converters (Windows/OS X)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-activatingdeactivating-picture-in-picture-feature-for-2024/"><u>[New] Activating/Deactivating Picture-in-Picture Feature for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-cross-play-exclusivity-guide-in-apex-legends-games/"><u>[Updated] 2024 Approved Cross-Play Exclusivity Guide in Apex Legends Games</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-everything-you-want-to-know-about-kapwing-video-translation/"><u>2024 Approved Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/avs-video-editor-a-detailed-review-for-beginners-and-pros-for-2024/"><u>AVS Video Editor A Detailed Review for Beginners and Pros for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-audio-capture-gear-top-7-list-2023-edition-for-2024/"><u>Cutting-Edge Audio Capture Gear Top 7 List, 2023 Edition for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-pc-setup-sticking-gmail-on-the-windows-taskbar/"><u>Essential PC Setup: Sticking Gmail on the Windows Taskbar</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/experts-choice-for-ultimate-iphone-16-and-16-pro-shields-in-202amoon-comprehensive-review-on-zdnet/"><u>Experts' Choice for Ultimate iPhone 16 and 16 Pro Shields in 202Amoon: Comprehensive Review on ZDNET</u></a></li>
-<li><a href="https://ai-video.techidaily.com/in-2024-9-best-french-video-translators-online-and-download-options/"><u>In 2024, 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>New 2024 Approved A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
-<li><a href="https://win11.techidaily.com/techniques-for-resolving-roblox-system-failures/"><u>Techniques for Resolving Roblox System Failures</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-next-generation-of-video-splitters-post-xplit/"><u>The Next Generation of Video Splitters Post-Xplit</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-cross-platform-movie-capture/"><u>[Updated] 2024 Approved The Ultimate Guide to Cross-Platform Movie Capture</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-cinema-journey-iphone-users-best-choice-for-films-for-2024/"><u>[Updated] Cinema Journey IPhone Users' Best Choice for Films for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-globalscreen-top-ranked-local-and-live-tv-streams/"><u>[Updated] GlobalScreen Top-Ranked Local & Live TV Streams</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-effective-methods-for-responding-to-negative-youtube-feedback/"><u>[Updated] In 2024, Effective Methods for Responding to Negative YouTube Feedback</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-strategic-timestamp-use-for-increased-youtube-traction/"><u>[Updated] In 2024, Strategic Timestamp Use for Increased YouTube Traction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-the-asus-bw-16d1x-u-blu-ray-player-attractive-build-but-some-eccentricities-detected/"><u>Exploring the Features of the Asus BW-16D1X-U Blu-Ray Player: Attractive Build but Some Eccentricities Detected</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-mdm-from-iphone-11-pro-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove MDM from iPhone 11 Pro?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>New 2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-use-korean-to-english-video-translators-for-creators/"><u>New How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-lost-ark-startup-issues-a-comprehensive-guide/"><u>Troubleshooting Lost Ark Startup Issues : A Comprehensive Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719363856500-unfreeze-reset-and-restore-shift-key/"><u>Unfreeze, Reset, and Restore Shift Key</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-complete-guide-of-top-7-video-language-translators/"><u>Updated In 2024, A Complete Guide of Top 7 Video Language Translators</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>Updated In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>Updated In 2024, How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
 </ul></div>
 

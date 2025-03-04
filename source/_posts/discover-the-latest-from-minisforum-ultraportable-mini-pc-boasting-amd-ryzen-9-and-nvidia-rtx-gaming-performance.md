@@ -1,7 +1,7 @@
 ---
 title: "Discover the Latest From Minisforum: Ultraportable Mini PC Boasting AMD Ryzen 9 and NVIDIA RTX Gaming Performance"
-date: 2025-02-09T23:36:34.412Z
-updated: 2025-02-13T00:53:02.200Z
+date: 2025-02-27T16:25:25.492Z
+updated: 2025-03-03T20:30:22.412Z
 tags:
   - desktop
 categories:
@@ -40,10 +40,6 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -56,17 +52,9 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  (Image credit: Miniproca)
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  (Image credit: Miniproca)
 
@@ -89,17 +77,24 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/1717721209934-new-in-2024-how-to-record-good-audio-without-a-microphone/"><u>[New] In 2024, How to Record Good Audio Without a Microphone?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-enticing-instagram-followers-a-puzzle-post-primer-for-2024/"><u>[Updated] The Art of Enticing Instagram Followers A Puzzle Post Primer for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-multimedia-in-educational-practice/"><u>2024 Approved Navigating Multimedia in Educational Practice</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo Reno 10 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-supreme-selection-an-honour-roll-of-top-10-reddit-discussions/"><u>In 2024, The Supreme Selection An Honour Roll of Top 10 Reddit Discussions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>New 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-unlocking-global-audiences-top-video-language-converters/"><u>New In 2024, Unlocking Global Audiences Top Video Language Converters</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-vivo-s17e-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo S17e Black and White | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/top-5-udemy-subtitle-translation-tools-for-seamless-auto-translations/"><u>Top 5 Udemy Subtitle Translation Tools for Seamless Auto Translations</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/triumphant-guide-resolving-intel-dptf-driver-setup-obstacles/"><u>Triumphant Guide: Resolving Intel DPTF Driver Setup Obstacles</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-everything-you-want-to-know-about-kapwing-video-translation/"><u>Updated In 2024, Everything You Want To Know About Kapwing Video Translation</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-10-and-missing-cursor-mystery-solved-tips-and-fixes/"><u>Windows 10 and Missing Cursor Mystery Solved – Tips & Fixes!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-understanding-customer-acquisition-costs-and-their-impact-on-roi/"><u>[New] In 2024, Understanding Customer Acquisition Costs and Their Impact on ROI</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-twitch-stream-mastery-top-4-innovations-to-try/"><u>[Updated] 2024 Approved Twitch Stream Mastery Top 4 Innovations to Try</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-simplifying-cross-platform-sharing-instagram-and-facebook-integration/"><u>[Updated] Simplifying Cross-Platform Sharing Instagram & Facebook Integration</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-video-titling-solutions-online-now/"><u>2024 Approved Best Video Titling Solutions Online Now</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-top-10-solutions-for-movie-subtitle-translation-making-things-perfect/"><u>2024 Approved Top 10 Solutions for Movie Subtitle Translation Making Things Perfect</u></a></li>
+<li><a href="https://ai-video.techidaily.com/a-comprehensive-guide-for-free-video-translator-downloading/"><u>A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://ai-video.techidaily.com/breaking-language-barriers-elevate-your-content-with-the-best-free-video-translator-apps/"><u>Breaking Language Barriers Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://ai-video.techidaily.com/expertly-restore-your-damaged-photos/"><u>Expertly Restore Your Damaged Photos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixed-why-your-iphone-cant-pair-with-a-laptop-and-how-to-solve-it/"><u>Fixed! Why Your iPhone Can't Pair With a Laptop and How to Solve It</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-lava-yuva-2-pro-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Lava Yuva 2 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-14-pro-max-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 14 Pro Max without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-eliminating-noise-in-photos-using-photopeas-tools/"><u>In 2024, Eliminating Noise in Photos Using Photopea's Tools</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-apple-iphone-13-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on Apple iPhone 13</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-effective-facebook-use-5-key-techniques-for-success/"><u>Mastering the Art of Effective Facebook Use: 5 Key Techniques for Success</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-how-to-translate-youtube-videos-to-english-subtitles/"><u>New How to Translate YouTube Videos to English Subtitles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>Updated In 2024, Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
 </ul></div>
 
